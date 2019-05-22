@@ -1,5 +1,5 @@
 # the-vtex-files.github.io
-**_The': 'VteX Files_** is an interactive RPG /browser game, which aims towards a clearer vision of reality in an ever complex world. 
+**_The VteX Files_** is an interactive RPG /browser game, which aims towards a clearer vision of reality in an ever complex world. 
 It revolves around the strange events on the fictional moon *VteX*, assembled with factual episodes from the history of science & technology and current affairs. 
 
 The concept of the game is *the virus*, and players can explore its function as a political agent within society and culture and test its capabilities in softening or destabilizing entrenched frontiers. Virulence is vital noise that can jam artificial intelligence (AI), which has its roots in formal reasoning and has since infested culture globally.
