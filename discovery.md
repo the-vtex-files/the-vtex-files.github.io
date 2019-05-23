@@ -1,16 +1,13 @@
 Charlie is driving the single-tracked path to the Center of Agriculture (CA),
  surrounded by the vast fields of designer wheat and its germane funghi 
 rocking softly in the gentle wind.<br>
-Indeed, life is spoilt on the near side of the moon. 
+Indeed, life is spoilt on the near side of the moon.<br>
 It is early in the day, the terminator has shifted and moon dust has settled. A long 334.5h work shift lies ahead for Charlie; 
 part of administrative staff, she is responsible for keeping the crops tidy and their picking before nightfall.
-
 The rich harvest is not tantamount with a poor stock market performance, 
 excessively strong winds guarantee a daily net profit, when it's switch-off time for the reaper and the crop eradication policy is left to nature. 
 
- The vehicle's dead angle monitoring is off, no need for that on an exemplarily 
-managed orb like VteX, and Charlie is completely unaware that something is approaching her. 
-Undesirable rustling noise is impinging on her auditory system, the sound hits her at once 
+The vehicle's dead angle monitoring is off, no need nor time for that on an exemplarily managed orb like VteX, but vexing rustling noise is impinging on her auditory system, sparse but all at once. 
 
 ```[ch_hanson@localhost ~]$ echo wtf
 wtf```
