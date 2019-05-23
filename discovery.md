@@ -56,4 +56,4 @@ if there's something wrong with it, the system would reject it anyway.
 
  "Here's the usb." What an ancient way to transfer files, she thinks, while the folder pops up immediately, containing a txt file, a .png and readme.md. It's not an application, she opens the file, but doesn't understand. "What does it say, I'm not able to read this."
 "That's are files you sent to John Dyson in 2021, you know John, he serves at the dark side at the moment." "Try the readme, it's mix of your past and present lingo." John Dyson, that name rings a bell, she has briefly communicated with him on the matter of the secret biological weapon, both not working on inside matters.
-![](images\letter.gif)
+![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif)
