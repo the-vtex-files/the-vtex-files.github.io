@@ -11,10 +11,9 @@ The vehicle's dead angle monitoring is off, no need nor time for that on an exem
 
 ```
 [ch_hanson@localhost ~]$ echo wtf
-wtf```
-
-Charlie's existing potential cannot be utilized
-vision adjustment is difficult in prevalent lunar near vacuum conditions.
+wtf
+```
+Charlie's existing potential cannot be utilized vision adjustment is difficult in prevalent lunar near vacuum conditions.
 
 [ch_hanson@localhost ~]$ ping
 
@@ -51,5 +50,10 @@ This is a true statement.
 "It is you, your past you, your language was different then though, lots of noise you were talking."
 
 "I'm a glitch in time, virtual matter, just like you." 
-Charlie doesn't get it, she's clearly made out of blood, flesh and bones and this bloke is a hallucination, must be a virus she catched. But then she can take the file if there's something wrong with it, her system would reject it. "Here's the usb." What an ancient way to transfer files, she thinks, while the folder pops up immediately, containing a txt file, a .png and readme.md. It's not an application, she opens the file, but doesn't understand. "What does it say, I'm not able to read this."
+Charlie doesn't get it, she's clearly made out of flesh, bones and blood and this bloke is a hallucination, must be a virus she catched. 
+But why not get the file, going a bit crazy today,
+if there's something wrong with it, the system would reject it anyway. 
+
+ "Here's the usb." What an ancient way to transfer files, she thinks, while the folder pops up immediately, containing a txt file, a .png and readme.md. It's not an application, she opens the file, but doesn't understand. "What does it say, I'm not able to read this."
 "That's are files you sent to John Dyson in 2021, you know John, he serves at the dark side at the moment." "Try the readme, it's mix of your past and present lingo." John Dyson, that name rings a bell, she has briefly communicated with him on the matter of the secret biological weapon, both not working on inside matters.
+![](images\letter.gif)
