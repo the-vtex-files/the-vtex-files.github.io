@@ -1,6 +1,7 @@
 Charlie is driving the single-tracked path to the Center of Agriculture (CA),
  surrounded by the vast fields of designer wheat and its germane funghi 
 rocking softly in the gentle wind. 
+
 Indeed, life is spoilt on the near side of the moon. 
 It is early in the day, the terminator has shifted and moon dust has settled. A long 334.5h work shift lies ahead for Charlie; 
 part of administrative staff, she is responsible for keeping the crops tidy and their picking before nightfall.
