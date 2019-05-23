@@ -9,7 +9,8 @@ excessively strong winds guarantee a daily net profit, when it's switch-off time
 
 The vehicle's dead angle monitoring is off, no need nor time for that on an exemplarily managed orb like VteX, but vexing rustling noise is impinging on her auditory system, sparse but all at once. 
 
-```[ch_hanson@localhost ~]$ echo wtf
+```
+[ch_hanson@localhost ~]$ echo wtf
 wtf```
 
 Charlie's existing potential cannot be utilized
