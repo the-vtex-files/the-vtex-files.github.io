@@ -1,8 +1,7 @@
 Charlie is driving the single-tracked path to the Center of Agriculture (CA), surrounded by the vast fields of designer wheat and its germane funghi 
 rocking softly in the gentle wind. An undisturbed rural idyll,<br>
 Indeed, life is spoilt on the far side of the moon.<br>
-It is early in the day, the terminator has shifted and moon dust has settled. A long 334.5h work shift lies ahead for Charlie, as a proud member of administrative staff, she is responsible for keeping the crops tidy and their picking before nightfall.<br>
-The rich harvest is not tantamount with a poor stock market performance, excessively strong winds guarantee a tremendous daily net profit, whenever it's switch-off time for the reaper and crop eradication policy is left to nature. 
+It is early in the day, the terminator has shifted and moon dust has settled. A long 334.5h work shift lies ahead for Charlie, as a proud member of administrative staff, she is responsible for keeping the crops tidy and their picking before nightfall. The rich harvest is not tantamount with a poor stock market performance, excessively strong winds guarantee a tremendous daily net profit, whenever it's switch-off time for the reaper and crop eradication policy is left to nature. 
 
 The vehicle's dead angle monitoring is off, no need, nor time for that on an exemplarily managed orb like VteX, intelligent self-enmeshing sensor technology scans the territory and sends signals if anything fails to function as usual. This once vexing rustling noise is impinging Charlie's auditory system, sparse and all at once, but her existing potential cannot be utilized, vision adjustment proves difficult in prevalent lunar near vacuum conditions. 
 ```
@@ -12,10 +11,6 @@ wtf
 Something is moving in the fields - that doesn't ease the critical situation - dark blurred spots in an otherwise bleak landscape, coming together as a body with unknown agility, boundless frames indefinable by artificial logic. Void for vagueness is law and a wolf is recognized in the speed of light, to be more precise, it resembles a wolf with humanlike features but it does not play any role in this valuation, 
 
 Following the conglomerate's decree, all foreign matter must be eliminated to avoid inconvenience.
-
-
-
-
 Elimination in a flash - but the wolfr untouched is walking up to her,  
 Convulsive adherence to command 
 
@@ -23,10 +18,6 @@ but Charlie has only the option of the standard laser, constructed by the compan
 
 "I don't understand .. who are you .. you should be annihilated and burnt to ashes."
 
-```
-[ch_hanson@localhost ~]$ echo wtf
-wtf
-```
 "Hi, I'm Divock", says the chimeric being "I got a msg for you." <br>
 Charlie recognizes his words, a message, that is information, which can only be interpreted with a sufficient amount of uneconomic noise.<br>
 "You're not a part of the system, you don't have the app installed, so you're not able to send any message to me. Still curious tho, tbh."<br> 
