@@ -3,44 +3,44 @@ The rich harvest was not tantamount with a poor stock market performance, excess
 Indeed, life was spoilt on the far side of the moon.
 
 Ears rocked softly in the gentle wind and the vehicle was doing its rounds coherently. I wasn't afraid of overlooking any dead angles as safety took top priority on an exemplarily managed orb like VteX, 
-a consistent emission of signals
-where intelligent self-enmeshing sensor technology calculates its environment 
+the steady emission of electromagnetic signals
+smart self-enmeshing sensor technology
 if anything fails to function as usual. 
 
+All of a sudden tank tracks stop abruptly, no force acting between the magnetic body and its armature, current instead bypassed to open a valve.
+"Damn noise, where is it coming from?"<br>
 
-laser light pulsing and radio
-
-All of a sudden tank tracks stop abruptly, 
-
+The armored plate securing my protectoscope slides smoothly to the side, revealing a slick Gundlach rotary periscope assembly, 
+pulsing the territory is constantly carefully calculated and mapped by me.
+```
+[divock@localhost ~]$ echo wtf
+wtf
+```
 Direction finding (DF) still can prove difficult in prevalent lunar near vacuum conditions. 
 ```
 [divock@localhost ~]$ echo wtf
 wtf
 ```
-"Where is this damn noise coming from?"<br>
-I had to perform an alternate procedure, 
-the armored plate securing my protectoscope slides smoothly to the side, revealing a slick Gundlach rotary periscope assembly, scanning the territory.
-I was using LIDAR for remote sensing, 
-the territory is constantly carefully calculated and mapped by me.
+Finally I could illuminate the target, something was heading towards me. 
 
-Something is moving in the fields, dark blurred spots in an otherwise bleak landscape. 
-illuminate the target
-Coming together as a body with unknown agility, frames so boundless to be indefinable by artificial logic.<br>
+The potential threat, dark blurred spots in an otherwise bleak landscape, which packetized as a body with unknown agility, 
+Still stunned by this phenomenon, 
+identification
+in respect of precision, I had to apply the law of void for vagueness. 
+In the speed of light I'd recognized a wolf, but to be more precise, it just resembled a wolf
+boundless frames 
+actually indefinable by artificial logic.<br>
 
-Still stunned by this phenomenon
 
-Anyway, in respect of precision, I had to apply the law of void for vagueness. 
-In the speed of light I'd recognized a wolf, but to be more precise, it just resembles a wolf.
+Alignment at close range, reflections of captured light beams that fed my directed-energy weapon (DEW) and triggered high velocity projectiles that assured annihilation in a flash.<br>
+The wolf, unbothered still, was walking up to me with a determined grin on his face. 
+I've never been in a critical situation like this before, "Keep calm Charlie",
+I said to myself, "comply with system management standards."
 
-Alignment at mid range, reflections of captured light and radio beams
-are fed into her directed-energy weapon, which guarantees elimination in a flash. 
-The wolf, unbothered, was walking up to me with a determined grin on his face. 
-I haven't been in a critical situation like this before, 
-keep calm charlie i said to myself, nothing will happen if I 
-with system managment standards, 
-I kept aiming and firing, 
-I only had the option of the standar (), constructed by the company and usually reliable to kill any form that deviates from the citizens of VteX. 
+I kept aiming and firing, and I only had the option of the standard, constructed by the company and usually reliable to kill any form that deviates from the citizens of VteX. 
 Following the conglomerate's decree, all foreign matter must be eliminated to avoid inconvenience.
+
+
 
 "Who the hell are you .. you should be exterminated and burnt to ashes by now."
 
@@ -74,4 +74,4 @@ She opens the .txt file, but doesn't understand. "What does it say, I'm not able
 "That are files you sent to John Dyson in 2019, you know John, he serves at the dark side at the moment." 
 
 John Dyson, that name rings a bell, she has briefly communicated with him on the matter of the secret biological weapon, both not working on inside matters.
-![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif
+![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif)
