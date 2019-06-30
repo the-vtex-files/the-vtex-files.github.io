@@ -1,0 +1,19 @@
+What shell do I have: echo $SHELL
+doesn't need .sh extension, but recommended??
+
+script executable for current user: chmod u+x ~/somecrazyfolder/script1 BUT
+if I create a bin folder in home directory, then I don't have to use the ./ prefix to run it. 
+
+script names shouldn't conflict with names of commands, thus check:
+which [command] 
+
+1.    Every script should being with “#!/bin/bash”
+      Every new line is a new command
+      Comment lines start with a #
+      Commands are surrounded by ()
+
+New Line = New Command
+how to avoid the prob? through indent??
+REMEMBER: this applies also to comment # lines !
+
+
