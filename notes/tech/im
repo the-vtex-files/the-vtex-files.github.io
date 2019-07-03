@@ -1,0 +1,8 @@
+geometry (from top-left pixel): width x height + x-offset (horizontal) + y-offset (vertical)
+[offset=where the image is located /position]
+
+convert to greyscale:
+convert <img_in> -set colorspace Gray -separate -average <img_out>
+
+display 50% of image:
+display -resize 50% *.JPG

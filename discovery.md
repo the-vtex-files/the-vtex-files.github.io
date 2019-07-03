@@ -2,33 +2,29 @@ I was driving along the single-tracked path to the Center of Agriculture (CA), s
 The rich harvest was not tantamount with a poor stock market performance, violent storms guaranteed a tremendous daily net profit, whenever it was switch-off time for the reaper and crop eradication policy was left to nature.<br> 
 Indeed, life was spoilt on the far side of the moon.
 
-Ears rocked softly in the gentle wind and the vehicle was doing its rounds coherently. I didn't had to worry about missing any dead angles as safety took top priority on an exemplarily managed orb like VteX, where smart self-enmeshing sensor technology signaled if anything failed to function as usual. The information flow on crop growth progression was kick-ass, as a matter of fact every grain kernel was tracked by the far, wide and steady emission of electromagnetic waves, their reflections and returns to the receiver.
+Ears rocked softly in the gentle wind and the vehicle was doing its rounds coherently. I didn't had to worry about missing any dead angles as safety took priority on an exemplarily managed orb like VteX, where smart self-enmeshing sensor technology signaled if anything failed to function as usual. The information flow on crop growth progression was kick-ass, as a matter of fact every grain kernel was tracked by the far, wide and steady emission of electromagnetic waves, their backscatter and return to the receiver.
 
-All of a sudden tank tracks stopped abruptly, no force acting between the magnetic body and its armature, current instead was bypassed to open a valve.<br>
-"Damn noise, where is it coming from?"<br>
-Direction finding (DF) still can prove difficult in prevalent lunar near vacuum conditions. 
+It was Wed 03 Jul 2020 02:27:45 PM when any acting force between magnetic body and its armature went missing and tank tracks stopped abruptly. Something alien appeared on my territory,<br>
+territory that was carefully scanned, tracked and mapped in real-time.
 ```
 [divock@localhost ~]$ echo wtf
 wtf
 ```
+"Where is this damn noise coming from?"<br>
 ```
 [divock@localhost ~]$ echo wtf
 wtf
 ```
-As a rule, the mode of operation for remote sensing on the dark side was laser light pulsing and each backscatter point automatically packetized into economically meaningful simulation. 
-However I couldn't illuminate a target and had to perform an alternate process never used by me. 
-The armored plate securing my protectoscope slides smoothly downwards, revealing a slick Gundlach rotary periscope assembly, 
-, my territory, was carefully scanned, tracked and mapped by me.
+Laser light pulsing set the mode of operation for remote sensing on the dark side of the moon, but this time I couldn't illuminate a target and lost the capaticity to packetize constituent reflection points into an economically meaningful simulation. Direction finding (DF) can prove difficult in prevalent lunar near vacuum conditions<br>
+and I had to perform an alternate process common on the bright side.
 
-The potential threat turned out as dark blurred spots in an otherwise bleak landscape, framing a body with unknown agility, 
-too boundless to be definable by artificial logic.<br>
-Although still stunned by this phenomenon (never seen it with event-based detection and ranging), identification was urgent.
-In respect of precision, I had to apply the law of void for vagueness and recognized a wolf in the speed of light. 
+The armored plate securing my protectoscope slid smoothly to the side, revealing a slick Gundlach rotary periscope assembly.
+The potential threat turned out as dark blurred spots in an otherwise bleak landscape, merging into a body with unknown agility, 
+frames so boundless to be definable by artificial logic.<br>
+Temporarily I was stunned by this phenomenon, as I've never witnessed it with event-based detection and ranging before, but identification was urgent.
+
+In respect of precision I had to apply the law of void for vagueness 
 But to be more precise, it just resembled a wolf ..
-
-
-
-calculation: laser pulse speed + reflection time
 
 Alignment at close range, reflections of captured light beams that fed my directed-energy weapon (DEW) and triggered high velocity projectiles that assured annihilation in a flash.<br>
 The wolf, unbothered still, was walking up to me with a determined grin on his face. 
@@ -38,27 +34,30 @@ I said to myself, "comply with system management standards."
 I kept aiming and firing, and I only had the option of the standard, constructed by the company and usually reliable to kill any form that deviates from the citizens of VteX. 
 Following the conglomerate's decree, all foreign matter must be eliminated to avoid inconvenience.
 
-"Who the hell are you .. you should be exterminated and burnt to ashes by now."
 
+
+"Who the hell are you .. you should've met god and burnt to ashes by now."
 
 "Hi, I'm Divock", said the chimeric being "I got a msg for you."<br> 
 I was recognizing his words, a message, that is information, which can only be interpreted with a sufficient amount of uneconomic noise.<br> 
+"Things got horribly wrong, they've cancelled time.<br> 
+Face it, you're just a steel case
+And you know what? You've only 'made it' here coz of your ambiguous name. 
+And I'm definitely not alien, especially not to you"
+
+flesh, bones and blood,
+
+I treated the bloke and scenario as a hallucination, "must be a virus I've catched."
+But the longer I've talked to him, my stable reality crumbled, 
+am I losing it?
+
 "How come there is communication between us, you're obviously alien?"
-
-"Things got horribly wrong,<br> 
-And you know what? You've only 'made it' here coz of your ambiguous name. Face it, you're a steel case with some wires and ceramics inside.
-Still, u're a hybrid, nothing but virtual matter but 
-And I'm definitely not alien, especially not to you."
-
-I didn't get it back then and naively believed I'm made out of flesh, bones and blood, was my experience caused by trauma? 
-I didn't know how to act, so I treated the bloke and scenario as a hallucination, "must be a virus I've catched."
-
 "Still curious about the msg tho, tbh."
 Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill.<br>
  
 "Who is the sender?" 
 
-"Again .. It is you, your past you, your language was different then though, lots of noise you were talking."<br>
+"It is you, your past you, your language was different then though, lots of noise you were talking."<br>
 
 "Here's the usb. It contains some plain text and a greyscale image, lossless compression, no harmful data, basically."<br>
 This is a true statement.<br>
