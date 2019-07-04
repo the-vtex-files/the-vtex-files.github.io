@@ -4,8 +4,8 @@ Indeed, life was spoilt on the far side of the moon.
 
 Ears rocked softly in the gentle wind and the vehicle was doing its rounds coherently. I didn't had to worry about missing any dead angles as safety took priority on an exemplarily managed orb like VteX, where smart self-enmeshing sensor technology signaled if anything failed to function as usual. The information flow on crop growth progression was kick-ass, as a matter of fact every grain kernel was tracked by the far, wide and steady emission of electromagnetic waves, their backscatter and return to the receiver.
 
-It was Wed 03 Jul 2020 02:27:45 PM when any acting force between magnetic body and its armature went missing and tank tracks stopped abruptly. Something alien appeared on my territory,<br>
-territory that was carefully scanned, tracked and mapped in real-time.
+It was Wed 03 Jul 2020 02:27:45 PM when any acting force between magnetic body and its armature went missing and tank tracks stopped abruptly. Something alien prowled through the fields,<br>
+territory that was carefully scanned, tracked and mapped by me in real-time.
 ```
 [divock@localhost ~]$ echo wtf
 wtf
@@ -15,27 +15,33 @@ wtf
 [divock@localhost ~]$ echo wtf
 wtf
 ```
-Laser light pulsing set the mode of operation for remote sensing on the dark side of the moon, but this time I couldn't illuminate a target and lost the capaticity to packetize constituent reflection points into an economically meaningful simulation. Direction finding (DF) can prove difficult in prevalent lunar near vacuum conditions<br>
+On the dark side of the moon laser light pulsing set the mode of operation for remote sensing, but this time I couldn't illuminate a target and lost the capaticity to packetize constituent reflection points into an economically meaningful simulation. Direction finding (DF) can prove difficult in prevalent lunar near vacuum conditions<br>
 and I had to perform an alternate process common on the bright side.
 
 The armored plate securing my protectoscope slid smoothly to the side, revealing a slick Gundlach rotary periscope assembly.
-The potential threat turned out as dark blurred spots in an otherwise bleak landscape, merging into a body with unknown agility, 
-frames so boundless to be definable by artificial logic.<br>
-Temporarily I was stunned by this phenomenon, as I've never witnessed it with event-based detection and ranging before, but identification was urgent.
+The potential threat turned out to be dark blurred spots in an otherwise bleak landscape, merging into a body with bizarre agility. Frames appeared 
 
-In respect of precision I had to apply the law of void for vagueness 
-But to be more precise, it just resembled a wolf ..
+boundless to be definable by artificial logic.<br>
 
-Alignment at close range, reflections of captured light beams that fed my directed-energy weapon (DEW) and triggered high velocity projectiles that assured annihilation in a flash.<br>
+In respect of precision I proceeded with the law of void for vagueness although 
+I wished I could marvel at
+this phenomenon
+for some time longer
+, as I've never witnessed anything like it with event-based -dar before, but identification was urgent.
+within the speed of light I've recognized a wolf
+But to be more precise, it just resembled a wolf .. but this 
+
+Alignment at close range, 
+reflections of captured radio beams that fed my directed-energy weapon (DEW) 
+and triggered high velocity projectiles that assured annihilation in a flash.<br>
 The wolf, unbothered still, was walking up to me with a determined grin on his face. 
-I've never been in a critical situation like this before, "Keep calm Charlie",
+I've never been in a clusterfuck like this before, "Keep calm Charlie",
 I said to myself, "comply with system management standards."
 
-I kept aiming and firing, and I only had the option of the standard, constructed by the company and usually reliable to kill any form that deviates from the citizens of VteX. 
-Following the conglomerate's decree, all foreign matter must be eliminated to avoid inconvenience.
+I kept aiming and firing without kill
+  and I only had the option of the standard weapon, constructed by the company and usually more than reliable to eliminate all alien matter
 
-
-
+The wolf stopped at 
 "Who the hell are you .. you should've met god and burnt to ashes by now."
 
 "Hi, I'm Divock", said the chimeric being "I got a msg for you."<br> 
