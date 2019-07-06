@@ -46,36 +46,33 @@ I've decided to pay no longer attention to this nonsense and tried to reboot the
 
 "Face it, ur just a flat projection of ur former self. Although u look like a steel case with some wires in it, LOL<br>
 And you know what? You've only 'made it' here coz of your ambiguous name." Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike you I'm made of flesh, bones and blood."<br>
-Then he pulled an axe out from the back of his trousers and split my skull apart. 
-"See, I am REAL, a friend from the past, 
-U r just a copy of the original, 
+Then he pulled an axe out from the back of his trousers and split my skull apart.<br>
+"See, I am REAL, a friend from the past, I'll put some sunshine in u
+ U r just a copy of the original."<br>
+I could see
+Cerebral matter, bone splinters and body fluids spattering
+all around the golden shimmering cornfields in this otherwise undisturbed rural idyll, even landed on his muscular body.
+I was somehow still functioning, and there was no other choice other to be game for it. 
 
-cerebral matter, bone splinters and body fluids  spattered
-I was somehow still alive, and there was no other choice other to be game for it. 
-"Why not get the message", I thought, "I could go a bit crazy today in this otherwise undisturbed rural idyll, if there's something wrong with them, the system would reject them anyway."
-
-"Still curious about the msg tho, tbh."
-"Who is the sender?" 
-
-"It is you, your past you, your language was different then though, lots of noise you were talking."<br>
-
-"That are files you sent to John Dyson in 2019, you know John, he serves at the dark side at the moment." 
-John Dyson, that name rings a bell, she has briefly communicated with him on the matter of the secret biological weapon, both not working on inside matters.
-Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill.<br>
 
 But the longer I've talked to him, my stable reality crumbled, 
 am I losing it?
+"What message", I i
+f there's something wrong with them, the system would reject them anyway."
+"Who is the sender?" 
+
+"It is you, your past you, your language was different then though, lots of noise you were talking."<br>
+That are files you sent to John Dyson in 2019, you know John, he serves at the dark side at the moment." 
+John Dyson, that name rings a bell, she has briefly communicated with him on the matter of the secret biological weapon, both not working on inside matters.
+Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill.<br>
+
 
  "It contains some plain text and  greyscale images lossless compression, no harmful data, basically."<br>
 This is a true statement.<br>
-
-
 The folder contained images that didn't make any sense. 
-
 
 a file named "John", which was copied on the ***
 with scrambled text
-
 and identity.check.
 
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif)
