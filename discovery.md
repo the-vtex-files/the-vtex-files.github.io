@@ -26,40 +26,35 @@ In respect of precision I proceeded with the law of void for vagueness,
 I've recognized a wolf,  
 but it just resembled a wolf .. just not apparent to me. 
 
-Reflections of captured radio beams fed my directed-energy weapon (DEW) and triggered high velocity projectiles that assured annihilation in a flash.
-The wolf, unbothered still, was walking up to me with a determined grin on his face. 
-
-I couldn't take a breather, "Keep calm Charlie",
-I said to myself, "comply with system management standards."
+Reflections of captured radio beams fed my directed-energy weapon (DEW) and triggered high velocity projectiles 
+usually more than reliable to eliminate all foreign matter as instructed.
+The wolf, unbothered, was walking up to me with a determined grin on his face. 
+There was no breathing space "Keep calm Charlie", I said to myself, "comply with system management standards."
 
 I kept aiming and firing without kill, 
-and just had the option of a standard weapon
-constructed by the company and usually more than reliable to eliminate all foreign matter as instructed.
+having just the sole option 
+of a standard weapon, constructed by our mighty corporation.
 
-The wolf just stood in front of me. 
+The wolf now stood right in front of me. 
 "Who the hell are you .. you should be burnt to ashes by now."
 
-"Hi, I'm Divock", said the chimeric being calmly 
+"Hi, I'm Divock", said the chimeric being calmly<br>
+"things got horribly wrong, they've cancelled space-time. you didn't notice the incident but I got a msg for you."<br> 
+A message, I thought, that is information, which can only be interpreted with a sufficient amount of uneconomic noise.<br> 
+"Sorry, no interest. Anyway, have a good day."<br>
+I've decided to pay no longer attention to this nonsense and tried to reboot the whole system.
 
-"Things got horribly wrong, they've cancelled space-time. 
+"Face it, ur just a flat projection of ur former self. Although u look like a steel case with some wires in it, LOL<br>
+And you know what? You've only 'made it' here coz of your ambiguous name." Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike you I'm made of flesh, bones and blood."<br>
+Then he pulled an axe out from the back of his trousers and split my skull apart. 
+"See, I am REAL, a friend from the past, 
+U r just a copy of the original, 
 
-Face it, you're 
-just a steel case with some wires in it
-flat, a projection of ur former self
-reality
+cerebral matter, bone splinters and body fluids  spattered
+I was somehow still alive, and there was no other choice other to be game for it. 
+"Why not get the message", I thought, "I could go a bit crazy today in this otherwise undisturbed rural idyll, if there's something wrong with them, the system would reject them anyway."
 
-However, I am real, a friend from the past. 
-
-And you know what? You've only 'made it' here coz of your ambiguous name. 
-
-"I got a msg for you."<br> 
-I was recognizing his words, a message, that is information, which can only be interpreted with a sufficient amount of uneconomic noise.<br> 
-I was hallucinating, "must be a virus I've catched."
-Surely I was made of 
-flesh, bones and blood,
-There was no choice other to be game for it. 
 "Still curious about the msg tho, tbh."
-"Why not get them", I thought, "I could go a bit crazy today in this otherwise undisturbed rural idyll, if there's something wrong with them, the system would reject them anyway."
 "Who is the sender?" 
 
 "It is you, your past you, your language was different then though, lots of noise you were talking."<br>
