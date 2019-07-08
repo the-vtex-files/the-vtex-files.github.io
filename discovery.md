@@ -22,24 +22,21 @@ It was made of infinite boundless frames and escaped any logic but identificatio
 (it just resembled a wolf, but that wasn't apparent to me at that time)<br>
 Finally I was ready for some action.
 
-Reflections of captured radio beams fed my directed-energy weapon (DEW), triggering armor-piercing fin-stabilized discarding sabots (APFSDS) to penetrate the object with kinetic energy. The wolf, completely unbothered, was still coming up for me with a determined grin on its face. My hands clenched in anger around the railgun, I kept aiming and firing without breathing space nor kill.
-"Keep calm Charlie", I've tried to reassure myself, "comply with system management standards."<br>
-Fair enough - I just had the sole option of a standard gun, constructed by our mighty corporation and usually more than efficacious to eliminate all foreign matter as instructed. The wolf stopped moving and stood now right in front of my muzzle.<br>
+Reflections of captured radio beams fed my directed-energy weapon (DEW), triggering armor-piercing fin-stabilized discarding sabots (APFSDS) to penetrate the object with kinetic energy. The wolf, completely unbothered, was still coming for me with a determined grin on its face. My hands clenched in anger around the railgun, I kept aiming and firing without breathing space nor kill.
+"Keep calm Charlie", I've tried to reassure myself, "comply with system management standards." Fair enough - I just had the sole option of a standard gun, constructed by our mighty corporation and usually more than efficacious to eliminate all foreign matter as instructed. The wolf stopped moving and stood now right in front of my muzzle.<br>
 "Who the hell are you .. you should be lacerated flesh by now."
 
 "Hi, I'm Divock", said the chimeric being calmly<br>
-"things got horribly wrong, they've cancelled space-time. you didn't notice the incident but I got a msg for you- to know where you're at ."<br> 
+"things got horribly wrong, they've cancelled space-time. you didn't notice the incident but I got a msg for you - to know where you're at ."<br> 
 A message, I thought, that is information, which can only be interpreted with a sufficient amount of uneconomic noise.<br> 
 "Sorry, no interest. Anyway, have a good day."<br>
 I've decided to pay no longer attention to this nonsense and tried to reboot the whole system.
-
-"Face it, ur just a flat projection of ur former self. Although u look like a steel case with some wires in it to me, LOL<br>
+"Face it, ur just a flat projection of ur former self. Although to me u look like a steel case with some wires in it, LOL<br>
 And you know what? You've only 'made it' here coz of your ambiguous name." Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike you I'm made of flesh, bones and blood."<br>
-Then he pulled an axe out from the back of his trousers and split my skull apart.<br>
-"See, I am REAL, a friend from the past, who just allowed for some sunshine flowing into u."
+Then he pulled an axe from the back of his trousers and split my skull apart.<br>
+"See, I am REAL. A friend from the past, who just allowed for some sunshine flowing into u."
 
-I could see
-Cerebral matter, bone splinters and body fluids spattering
+I was watching cerebral matter, bone splinters and body fluids spattering 
 all around the golden shimmering cornfields in this otherwise undisturbed rural idyll, even landed on his muscular body.
 I was somehow still functioning, and there was no other choice to be game for it.
 
