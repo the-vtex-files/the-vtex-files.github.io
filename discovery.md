@@ -37,7 +37,7 @@ I could watch cerebral matter, bone splinters and body fluids spattering through
 somehow I was still functioning
 my stable reality crumbled, 
 am I losing it?
-or was I yearning for it?
+or was I yearning for it all the time?
 this undisturbed rural idyll, 
 and there was no other choice to be game for it.
 

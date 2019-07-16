@@ -1,5 +1,4 @@
-#!/bin/bash (shebang)
-
+#!/bin/bash 
 #This will copy a file, appending the date and time to the end of the file name.
 
 date_formatted=$(date +%m_%d_%y-%H.%M.%S)
