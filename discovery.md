@@ -13,7 +13,7 @@ wtf
 [divock@localhost ~]$ echo wtf
 wtf
 ```
-On the dark side of the moon laser light pulsing set the mode of operation for remote sensing, but this time I couldn't illuminate a target and lost my capability to packetize constituent reflection points into an economically meaningful simulation. Direction finding (DF) can prove difficult in prevalent lunar near vacuum conditions and I had to perform an alternate process common on the bright side. The armored plate securing my protectoscope slid smoothly downwards, revealing a slick Gundlach rotary periscope assembly. At first I felt rather sceptical towards the different spectrum of the alternate signal, but the method indeed offered the observation of the potential threat, which turned out to be dark blurred spots in an otherwise bleak landscape, merging into a body with bizarre agility. I wished to marvel at this phenomenon for a bit longer as I've never witnessed anything like with event-based -dar.
+On the dark side of the moon laser light pulsing set the mode of operation for remote sensing, but this time I couldn't illuminate a target and lost my capability to packetize constituent reflection points into an economically meaningful simulation. Direction finding (DF) can prove difficult in prevalent lunar near vacuum conditions and I had to perform an alternate process common on the bright side. The armored plate securing my protectoscope slid smoothly downwards, revealing a slick Gundlach rotary periscope assembly. At first I felt rather sceptical towards the different spectrum of the alternate signal, but the method offered indeed the observation of the potential threat, which turned out to be dark blurred spots in an otherwise bleak landscape, merging into a body with bizarre agility. I wished to marvel at this phenomenon for a bit longer as I've never witnessed anything like with event-based -dar.
 It was made of infinite boundless frames and escaped any logic but identification was urgent, so I've proceeded with the required law of void for vagueness and instantly recognized a wolf.
 (it just resembled a wolf, but that wasn't apparent to me back then)<br>
 Finally I was ready for some action.
@@ -32,31 +32,30 @@ Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike y
 Then he pulled an axe from the back of his trousers and split my skull apart.<br> 
 "See, I am REAL. A friend from the past, who just allowed for some sunshine flowing into u."
 
-I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body.
- Somehow I was still functioning, strange how impeccable the mind works after a burst of violence, and looking back, there were anyway two options, I've lost it or I died and entered a parallel universe, either way, there was no other choice then being game for it.<br>
-"What message", 
-"Who is the sender?" 
-"It is you, your past you, your language was different then though, lots of noise you were talking. 
-You encrypted the date as precautionary measure, 
+I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. 
 
-as u already noticed the signs 
-and expected that the outcome of this project could be catastropic. 
+Not letting my fear show, how would it have benefited the situation, I was nakedand killed  
 
-My stable reality crumbled, but then wasn't I yearning for this moment? 
-Trapped in this nauseating undisturbed rural idyll, 
-which i wasn't obviously wasnt part of no more. 
+"What message? was that the fucking message?"<br>
+"Who is the sender?"<br> 
+
+"no, listen, these files are beyond any subjective interests. You created them, your past you, your language was different then though, lots of noise you were talking LOL"
 
 
-Ok, i thought, still in disbelief
-ifhere's something wrong with them, the system would reject them anyway.
-"transfer the data to my harddrive""transfer the data to my harddrive"
+I will transfer them on ur harddrive.
+You encrypted the files as a precautionary measure, you did notice the signs,  
+and realized that the outcome of this project will be catastropic. 
 
+
+my stable reality crumbled the longer I was talking to Divock, but wasn't I yearning for 
+ Trapped in this nauseating undisturbed rural idyll, 
+of which i wasn't obviously part anymore. 
 "The folder contains files you sent to John Dyson in 2019, you know John, he serves on the dark side at the moment."<br>
 John Dyson, that name somehow rang a bell, but I couldn't tell when or where i've heard it before. 
-Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill.<br>
+
+Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter<br>
 
  "It contains some plain text and  greyscale images lossless compression, no harmful data, basically."<br>
-This is a true statement, still adhere to my old behavior. <br>
 
 The folder contained images that didn't make any sense. 
 a file named "John", with scrambled text
