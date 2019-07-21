@@ -13,7 +13,7 @@ wtf
 [divock@localhost ~]$ echo wtf
 wtf
 ```
-On the dark side of the moon laser light pulsing set the mode of operation for remote sensing, but this time I couldn't illuminate a target and lost my capability to packetize constituent reflection points into an economically meaningful simulation. Direction finding (DF) can prove difficult in prevalent lunar near vacuum conditions and I had to perform an alternate process common on the bright side. The armored plate securing my protectoscope slid smoothly downwards, revealing a slick Gundlach rotary periscope assembly. At first I felt rather sceptical towards the different spectrum of the alternate signal, but the method offered indeed the observation of the potential threat, which turned out to be dark blurred spots in an otherwise bleak landscape, merging into a body with bizarre agility. I wished to marvel at this phenomenon for a bit longer as I've never witnessed anything like with event-based -dar.
+On the dark side of the moon laser light pulsing set the mode of operation for remote sensing, but this time I couldn't illuminate a target and lost my capability to packetize constituent reflection points into an economically meaningful simulation. Direction finding (DF) can prove difficult in prevalent lunar near vacuum conditions and I had to perform an alternate process common on the bright side. The armored plate securing my protectoscope slid smoothly downwards, revealing a slick Gundlach rotary periscope assembly. At first I felt rather sceptical towards the different spectrum of the alternate signal, but the method offered indeed observation of the potential threat, which turned out to be dark blurred spots in an otherwise bleak landscape, merging into a body with bizarre agility. I wished to marvel at this phenomenon for a bit longer as I've never witnessed anything like with event-based -dar.
 It was made of infinite boundless frames and escaped any logic but identification was urgent, so I've proceeded with the required law of void for vagueness and instantly recognized a wolf.
 (it just resembled a wolf, but that wasn't apparent to me back then)<br>
 Finally I was ready for some action.
@@ -22,7 +22,7 @@ Reflections of captured radio beams fed my directed-energy weapon (DEW), trigger
 "Who the hell are you .. you should be lacerated flesh by now."
 
 "Hi, I'm Divock", said the chimeric being calmly<br>
-"things got horribly wrong, they've cancelled the future and consequently space-time. you didn't notice the incident but I got a msg for you - to know where you're at."<br> 
+"things got horribly wrong, they've cancelled the future and consequently space-time. you won't notice it currently but I got a msg for you - to know where you're at."<br> 
 A message, I thought, that is information with an exorbitant amount of uneconomic entropy.<br>
 "Sorry, no interest. Anyway, have a good day."<br>
 I've decided to pay no longer attention to this nonsense and tried to reboot the whole system.<br>
