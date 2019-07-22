@@ -22,7 +22,7 @@ Reflections of captured radio beams fed my directed-energy weapon (DEW), trigger
 "Who the hell are you .. you should be lacerated flesh by now."
 
 "Hi, I'm Divock", said the chimeric being calmly<br>
-"things got horribly wrong, they've cancelled the future and consequently space-time. you won't notice it currently but I got a msg for you - to know where you're at."<br> 
+"things got horribly wrong, they've cancelled the future and consequently space-time. you won't notice it atm but I got a msg for you - to know where you're at."<br> 
 A message, I thought, that is information with an exorbitant amount of uneconomic entropy.<br>
 "Sorry, no interest. Anyway, have a good day."<br>
 I've decided to pay no longer attention to this nonsense and tried to reboot the whole system.<br>
@@ -32,24 +32,17 @@ Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike y
 Then he pulled an axe from the back of his trousers and split my skull apart.<br> 
 "See, I am REAL. A friend from the past, who just allowed for some sunshine flowing into u."
 
-I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. 
+I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. Just being slaughtered, I wouldn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
+"What message? was that the fucking message? who is the sender?"<br>
+"no, listen, the msg contains files that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"
 
-Not letting my fear show, how would it have benefited the situation, I was nakedand killed  
-
-"What message? was that the fucking message?"<br>
-"Who is the sender?"<br> 
-
-"no, listen, these files are beyond any subjective interests. You created them, your past you, your language was different then though, lots of noise you were talking LOL"
-
-
+You encrypted the files as a precautionary measure, you saw it coming, realizing
+that the outcome of this project will be catastropic. 
 I will transfer them on ur harddrive.
-You encrypted the files as a precautionary measure, you did notice the signs,  
-and realized that the outcome of this project will be catastropic. 
 
+My stable reality crumbled the longer I was talking to Divock, but wasn't I yearning for it all the time
+ Trapped in this nauseating undisturbed rural idyll, of which i wasn't obviously part anymore. 
 
-my stable reality crumbled the longer I was talking to Divock, but wasn't I yearning for 
- Trapped in this nauseating undisturbed rural idyll, 
-of which i wasn't obviously part anymore. 
 "The folder contains files you sent to John Dyson in 2019, you know John, he serves on the dark side at the moment."<br>
 John Dyson, that name somehow rang a bell, but I couldn't tell when or where i've heard it before. 
 
@@ -64,11 +57,14 @@ and a pixelated image
 
 devoid of judgement, 
 Looks like I've briefly communicated with him on the matter of classified 
-material, some sort of secret biological weapon, 
-I needed to know more, I need to find John..
+material, was this some sort of a new secret biological weapon?
+I felt a sudden urge to know more, I needed to find John..
+I couldn't explain it, I just felt I was breaking out of solitary confinement. 
 
-"Divock, tell me more about, you need to help me to find John!"
+"Tell me more, I need your help to find John!"
 But the spectre of Divock disappeared like he came. His last words were:
  U r just a copy of the original, which unfortunately has gone. "<br>
+Divock not alien, VteX corp. colonized. 
+
 
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif)
