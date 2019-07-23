@@ -1,0 +1,19 @@
+#!/bin/perl
+use strict vars; 
+use warnings;
+use Image::Magick;
+my $stegano;
+
+$stegano=Image::Magick->new(size=>'300x300');
+$stegano->Read('xc:lightgray');
+
+$stegano->Annotate(
+text=>'Look for John\nmeet subsurface'
+gravity=>NorthEast,
+pointsize=>24, 
+fill=>'black', 
+style=>'Normal',
+);
+
+$stegano->Write ('stegano.gif');
+

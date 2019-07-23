@@ -1,57 +1,55 @@
-John Dyson, born in Flint, Michigan to engineering parents
-experienced kinds of epiphanies already as a kid:
-for instance in September 1994 he saw an armored vehicle autonomously operating
-on the road to downtown Detroit 
-That was something he would never ever dared to talk about to someone else
-his family and the people who surrounded him were superstitous indeed,
-but no one would have believed him, an outsider already.
+John Dyson, born in Flint, Michigan, to a couple of machinists, experienced kinds of epiphanies already as a child: for instance, on a school trip in September 1994 he noticed an armored vehicle operating autonomously on the road to downtown Detroit.
+
+a state between active and passive, 
+Second sight is simultaneous sending and receiving 
+ unearthes layers 
+
+that was something he would have never ever dared of communicating to anybody else. His parents and the few other people around him were superstitous folks indeed, but no one would have believed him, 
+and so he kept this secret to himself, 
+he an outsider already, wasn't keen to end up as 
+psychopathological case and put on medication.
 But then wasn't he the only one with clairvoyance ("one who sees clearly")?
-but he had a strong wish to step beyond the conventional limits of reality. 
 
-looking for help with college tuition
-He enlisted at the tank forces straight after high school 
-dreaming of becoming an officer and commanding a tank unit 
-he wants to be a sergeant (backbone of the military, in combat)
+Still he had a strong wish to step beyond the conventional limits of reality. 
+Looking for help with college tuition, he enlisted at the tank force at the age of 18, dreaming of becoming Sgt. and commanding a tank unit in combat.
+(backbone of the military)
 
-However, his career plans got destroyed.
-After school John was a frequent visitor of the March2success website,  
+he worked hard for it, every afternoon after school, 
+he sat down at the computer
+and trained his skills
+on the the March2success website,  
 ://www.march2success.com/main/index
 testing and evaluating his abilities for college. 
-with a bit of determination those tests were not particularly hard to solve,
-cryptograpic puzzles not able to solve with a normal functioning brain.
+games, apps
 
+What he wasn't aware of,
 his results aroused attention and created a link with 
 the Defense Intelligence Agency (DIA) in collab with private research/Stanford (SRI International) 
 were headhunting psychic spies already from a young age.
-Setting up a squad 
-with special powers, a unit of supersoldiers.
-From that time on they were observing him, directing him and encouraged him to pursue a career within the military.
+with a bit of determination those tests were not particularly hard to solve,
+cryptograpic puzzles not able to solve with a normal functioning brain.
 
-when did they confroting him?
 and discovered his paranormal abilites, he was desperate to hide.
-(in the early 90s, termed Stargate project, prev.Gondola flame, SUN STREAK, GRILL Flame)
 
-maybe they said, he had to work as a psychic spy during college?
-what did they ask him to look for underground? 
-maybe at first for spice, but then he detetected somth else, but they still need so much spice for the electricity they use. 
+Setting up a squad with special powers, a group of supersoldiers.
+
+From that time on they were observing him, directing him and encouraged him to pursue a career within the military.
+However, his career plans as panzerleader got destroyed.
+but instead, together with others, Charlie was amongst them
+they asked him to look into the subterrainian.the spice could be detected by radar, 
+but interference, what was it?
 noone ever anyway did not know what they were doing on the moon.
-  together with a few other supersoldiers
-maybe charlie also one of them?thats were they met?
-
+(in the early 90s, termed Stargate project, prev.Gondola flame, SUN STREAK, GRILL Flame)
 
 Albert "Bert" Newton Stubblebine III
 previous further testing in the goatlab.
 
 what is this round thin at 23, the perfect sphere
-speach at 24:to think the unthinkable, all under army command
-1st earht battalion, manifesto. 
-recruitment ad bue ?27mins<this army ad
-
-psychic warfare.
+speach at 24:to think the unthinkable, all under army command 1st earht battalion, manifesto.  recruitment ad bue ?27mins<this army ad psychic warfare.
 ESP abilities=extrasensory perception and used as a psychic spy, before the incident, for project grill flame.
 
 
-frustrated with his job, 
+PRESENT:frustrated with his job, 
 just some job title, as lt.gen. now he would prefer to be in combat but
 most of the time, he does bureaucrazy, this is hell
 is doing some PR for the military coz of his good looks.
@@ -64,9 +62,9 @@ mining (machines need to be protected)
 are there the 'dead people stored?' in storage, is there charlies heart as well?
 they are the resources for making capital.
 
-
 sand ecology /mining quartz made of magma or hot hydrothermal veins fulgurite  'petrified lightning' is a glass tube formed when electricity strikes sand (is glass just heated sand?) also from atomic blasts, meteor strikes, high-voltage devices falling onto the ground (what is that a plane??) just heat basically?? heat is energy, or?  hollow with rough exterior and smooth interior.  sand = silicon dioxide. (is this diff from silicon??) melted sand= lechatelierite.= amorphous material an
 
+ but they still need so much spice for the electricity they use. 
 In Vardoz, an autonomous region, where business can flourish 
 like it's built on sand, the structure is in constant flow.  Before a complex is even finished, it gets abandoned.  
 they mine both spice and bitcoin.
