@@ -33,42 +33,36 @@ Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike y
 Then he pulled an axe from the back of his trousers and split my skull apart.<br> 
 "See, I am REAL. A friend from the past, who just allowed for some sunshine flowing into u."
 
-I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. Just being slaughtered, I wouldn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
+I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after an abrupt burst of violence. Just being slaughtered, I wouldn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
 "What message? was that the fucking message? who is the sender?"<br>
-
-"no, listen, the msg contains files that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"
-
-You encrypted the files as a precautionary measure, you saw it coming, realizing
-that the outcome of this project will be catastropic. 
-I will transfer them on ur harddrive.
-
-My stable reality crumbled the longer I was talking to Divock, but wasn't I yearning for it all the time
- Trapped in this nauseating undisturbed rural idyll, of which i wasn't obviously part anymore. 
-
-"The folder contains files 
-of a conversation
-with John Dyson in 2019, you know John, he serves on the dark side at the moment."<br>
-John Dyson, that name somehow rang a bell, but I couldn't tell when or where i've heard it before. 
+"no, listen, the msg contains files that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"<br>
+The longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that to happen ever since being trapped in this nauseating undisturbed rural idyll?
 
 Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter<br>
+You encrypted the files as a precautionary measure, you saw it coming, realizin that the outcome of this project will be catastropic.
+I will transfer them on ur harddrive.
 
- "It contains some plain text and  greyscale images lossless compression, no harmful data, basically."<br>
+My memory had been erased. who am I? 
+
+"The folder contains files of a conversation with John Dyson in 2019, you know John, he serves on the dark side at the moment."<br>
+John Dyson, that name somehow rang a bell, but I couldn't tell when or where i've heard it before. 
 
 The folder contained images that didn't make any sense. 
-a file named "John", with scrambled text
-and a pixelated image
+a plain text file named "John", with scrambled text
+cropped images, or full of noise.
+all lossless compressed
 (identity.check)
+and a READ 
 
-devoid of judgement, 
-Looks like I've briefly communicated with him on the matter of classified 
+Looks like I've briefly communicated with JD on the matter of classified 
 material, was this some sort of a new secret biological weapon?
-I felt a sudden urge to know more, I needed to find John..
-I couldn't explain it, I just felt I was breaking out of solitary confinement. 
+
+I felt a sudden urge to know more, and to find John..
 
 "Tell me more, I need your help to find John!"
 But the spectre of Divock disappeared like he came. His last words were:
  U r just a copy of the original, which unfortunately has gone. "<br>
-Divock not alien, VteX corp. colonized. 
 
 
-![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif)
+
+![](https://github.com/the-vtex-files/the-vtex-files.github.io/divock/letter.gif)
