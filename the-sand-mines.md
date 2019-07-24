@@ -1,40 +1,29 @@
-John Dyson, born in Flint, Michigan, to a couple of machinists, experienced kinds of epiphanies already as a child: for instance, on a school trip in September 1994 he noticed an armored vehicle operating autonomously on the road to downtown Detroit.
+John Dyson, born in Flint, Michigan, to a couple of machinists, experienced kinds of epiphanies already as a child: for instance, on a school trip in September 1994 he noticed an armored vehicle operating autonomously on the road to downtown Detroit. His second sight, leaving him in a state between active and passive and gifting him with the ability to exchange internal and external signals simultaneously, was something he would never dared of communicating to anybody else. His parents and the few other people around him were superstitous folk indeed, but no one would have believed him, and so he kept this mystery to himself. An outsider already, he wasn't keen to end up as a psychopatho-logical case and put on medication with crippling effects. But then, wasn't he the one with clairvoyance, the only one who saw clearly?
 
-a state between active and passive, 
-Second sight is simultaneous sending and receiving 
- unearthes layers 
 
-that was something he would have never ever dared of communicating to anybody else. His parents and the few other people around him were superstitous folks indeed, but no one would have believed him, 
-and so he kept this secret to himself, 
-he an outsider already, wasn't keen to end up as 
-psychopathological case and put on medication.
-But then wasn't he the only one with clairvoyance ("one who sees clearly")?
-
+Despite the looming discovery of what he perceived as stigma
 Still he had a strong wish to step beyond the conventional limits of reality. 
-Looking for help with college tuition, he enlisted at the tank force at the age of 18, dreaming of becoming Sgt. and commanding a tank unit in combat.
-(backbone of the military)
 
-he worked hard for it, every afternoon after school, 
-he sat down at the computer
-and trained his skills
-on the the March2success website,  
-://www.march2success.com/main/index
-testing and evaluating his abilities for college. 
-games, apps
+And he worked hard for it, every day after school he sat down at the family computer and trained his skills on the March2Success website, an e-learning curriculum provided by the US army.
 
-What he wasn't aware of,
+With a bit of determination those 
+ tests and quizzes were not particularly hard to score high 
+
+What he wasn't aware of some of cryptograpic quizzes nor able to solve with a normal functioning brain.
 his results aroused attention and created a link with 
 the Defense Intelligence Agency (DIA) in collab with private research/Stanford (SRI International) 
 were headhunting psychic spies already from a young age.
-with a bit of determination those tests were not particularly hard to solve,
-cryptograpic puzzles not able to solve with a normal functioning brain.
-
-and discovered his paranormal abilites, he was desperate to hide.
-
-Setting up a squad with special powers, a group of supersoldiers.
 
 From that time on they were observing him, directing him and encouraged him to pursue a career within the military.
+Career Navigator
+testing and evaluating his abilities for a career at the military. 
+
+Looking for help with college tuition, he enlisted at the tank force at the age of 18, dreaming of becoming Sgt. and commanding a tank unit in combat.
+(backbone of the military)
 However, his career plans as panzerleader got destroyed.
+and discovered his paranormal abilites, he was desperate to hide.
+
+
 but instead, together with others, Charlie was amongst them
 they asked him to look into the subterrainian.the spice could be detected by radar, 
 but interference, what was it?
@@ -42,9 +31,9 @@ noone ever anyway did not know what they were doing on the moon.
 (in the early 90s, termed Stargate project, prev.Gondola flame, SUN STREAK, GRILL Flame)
 
 Albert "Bert" Newton Stubblebine III
+Setting up a squad with special powers, a group of supersoldiers.
 previous further testing in the goatlab.
-
-what is this round thin at 23, the perfect sphere
+with zener cards.
 speach at 24:to think the unthinkable, all under army command 1st earht battalion, manifesto.  recruitment ad bue ?27mins<this army ad psychic warfare.
 ESP abilities=extrasensory perception and used as a psychic spy, before the incident, for project grill flame.
 
