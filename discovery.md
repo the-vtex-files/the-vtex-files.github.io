@@ -33,31 +33,34 @@ Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike y
 Then he pulled an axe from the back of his trousers and split my skull apart.<br> 
 "See, I am REAL. A friend from the past, who just allowed for some sunshine flowing into u."
 
-I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after an abrupt burst of violence. Just being slaughtered, I wouldn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
+I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. Just being slaughtered, I wouldn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
 "What message? was that the fucking message? who is the sender?"<br>
 "no, listen, the msg contains files that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"<br>
-The longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that to happen ever since being trapped in this nauseating undisturbed rural idyll?
+He told me that my memory had been erased, without clarifying any circumstances, and the longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? On the other hand the imminent revelation freaked me out but I was ready to unearth the truth and asked for file transfer.
 
-Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter<br>
-You encrypted the files as a precautionary measure, you saw it coming, realizin that the outcome of this project will be catastropic.
-I will transfer them on ur harddrive.
+"I will put them on ur harddrive.
+Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
 
-My memory had been erased. who am I? 
-
-"The folder contains files of a conversation with John Dyson in 2019, you know John, he serves on the dark side at the moment."<br>
-John Dyson, that name somehow rang a bell, but I couldn't tell when or where i've heard it before. 
-
-The folder contained images that didn't make any sense. 
-a plain text file named "John", with scrambled text
+What the hell was this?
+The folder contained files that didn't make any sense. 
 cropped images, or full of noise.
-all lossless compressed
-(identity.check)
-and a READ 
+all of them lossless compressed
+and a README, with hastily assembled commands
+a plain text file named "John",
 
+You encrypted some of the images as a precautionary measure, you saw it coming, realizin that the outcome of this project will be catastropic.
+He was watching me looking over my shoulder
+
+"that is from a conversation with John Dyson in 2019, you know John, he serves on the dark side atm."<br>
+John Dyson, that name somehow rang a bell, but I couldn't tell when or where i've heard it before. 
 Looks like I've briefly communicated with JD on the matter of classified 
-material, was this some sort of a new secret biological weapon?
+material, was this some sort of a new secret biological weapon? 
 
-I felt a sudden urge to know more, and to find John..
+totally Absorbed into reading and solving the cryptic
+and popping questions in ma head
+overall 
+I felt a burning desire to know more, and to find John..
+
 
 "Tell me more, I need your help to find John!"
 But the spectre of Divock disappeared like he came. His last words were:
