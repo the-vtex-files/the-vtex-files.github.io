@@ -33,20 +33,28 @@ Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike y
 Then he pulled an axe from the back of his trousers and split my skull apart.<br> 
 "See, I am REAL. A friend from the past, who just allowed for some sunshine flowing into u."
 
-I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. Just being slaughtered, I wouldn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
+I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. 
+It felt as if a plug pulled from a sink, and my consciousness drained out.
+
+Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. Just being slaughtered, I wouldn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
 "What message? was that the fucking message? who is the sender?"<br>
-"no, listen, the msg contains files that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"<br>
-He told me that my memory had been erased, without clarifying any circumstances, and the longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? On the other hand the imminent revelation freaked me out but I was ready to unearth the truth and asked for file transfer.
+"no, listen, the msg contains documents that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"<br>
+He told me that my memory had been erased without clarifying the circumstances, and the longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? 
 
-"I will put them on ur harddrive.
-Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
+On the other hand the imminent revelation freaked me out but I was ready to unearth the truth and asked for file transfer.
 
-What the hell was this?
+"I will put them on ur harddrive. Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
+
+hat the hell was this?
 The folder contained files that didn't make any sense. 
 cropped images, or full of noise.
 all of them lossless compressed
 and a README, with hastily assembled commands
 a plain text file named "John",
+a redacted jumble of fragments, photocopes, documents
+mk-ultra is cia, futrue esotoric soldiers >dia 
+for covert assissination.<
+what lay hidden in teh collage of the vtex files?
 
 You encrypted some of the images as a precautionary measure, you saw it coming, realizin that the outcome of this project will be catastropic.
 He was watching me looking over my shoulder
