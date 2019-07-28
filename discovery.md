@@ -36,19 +36,18 @@ Then he pulled an axe from the back of his trousers and split my skull apart.<br
 It felt as if a plug was pulled from a sink and my consciousness drained out. I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. Just being slaughtered, I didn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
 "What message? was that the fucking message? who is the sender?"<br>
 "no, listen, the msg contains documents that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"<br>
-He told me that my memory had been erased without clarifying the circumstances, and the longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? Now trembling with fear and totally freaked out by the imminent revelation, I asked for file transfer.
+He told me that my memory had been erased without clarifying the circumstances, and the longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? Now, trembling with fear for my life and totally freaked out by the imminent revelation, I asked for file transfer.
 
-"I will put the folder on ur harddrive. Are you sure you can READ it? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
+"I will put the folder on ur harddrive. Are you sure you can READ its contents? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
+What the hell was this?
+A redacted jumble of fragments, lossless compressed cropped images
 
-hat the hell was this?
-The folder contained files that didn't make any sense. 
-cropped images, or full of noise.
-all of them lossless compressed
-and a README, with hastily assembled commands
+photocopies  noise
+documents 
 a plain text file named "John",
-a redacted jumble of fragments, photocopes, documents
-mk-ultra is cia, futrue esotoric soldiers >dia 
-for covert assissination.<
+and a README, with hastily assembled commands
+
+
 what lay hidden in teh collage of the vtex files?
 
 You encrypted some of the images as a precautionary measure, you saw it coming, realizin that the outcome of this project will be catastropic.

@@ -1,42 +1,66 @@
-John Dyson, born in Flint, Michigan, to a couple of machinists, experienced kinds of epiphanies already as a child: for instance, on a school trip in September 1994 he noticed an armored vehicle operating autonomously on the road to downtown Detroit. His second sight, leaving him in a state between active and passive and gifting him with the ability to exchange internal and external signals simultaneously, was something he would never dared of communicating to anybody else. His parents and the few other people around him were superstitous folk indeed, but no one would have believed him, and so he kept this mystery to himself. An outsider already, he wasn't keen to end up as a psychopatho-logical case and put on medication with crippling effects. But then, wasn't he the one with clairvoyance, the only one who saw clearly?
+I, John Dyson, born in Flint, Michigan, to a couple of machinists, experienced kinds of epiphanies already as a child: for instance, on a school trip in August 2001 I've noticed an armored vehicle operating autonomously besides the Wolverine to Ann Arbor Train station. My second sight carries me in a state between active and passive. I perceive signals from the outside, an incomprehensible and chaotic kingdom, which can not be interpreted with words but somehow manifest in my body, mind and soul and as a consequence, turn out to be prophetic. I would have never dared to share my weird experiences with somebody else, as I wasn't keen to end up as a psychopatho-logical case and put on medication with crippling effects. My parents and other people around me were superstitous folk indeed, evangelical protestants, who'd block out any signs of horror as if it didn't belong to nature and solely existed as an alien evil force.<br>
+But wasn't I the one with clairvoyance, the one who saw clearly?
+
+Despite the looming threat of decay and madness, I still had a strong wish to step beyond the conventional limits of reality and secure a top spot in technology. Every day after school I would sit down at the family computer and train my skills with game-based learning. With a bit of determination it wasn't difficult to score high, anyway, my results drew attention and created a link with the Defense Intelligence Agency (DIA), who was headhunting psychic spies already from a young age. Only later I've learnt that the CIA was involved too. I was unaware that I was under observation and steered into pursuing a career within the military ever since.  
+
+Looking for help with college tuition, I've enlisted at the tank force at the age of 18, dreaming to become part of the army's backbone and command a tank unit in combat as a Sgt.
+engaged with high tech. 
 
 
-Despite the looming discovery of what he perceived as stigma
-Still he had a strong wish to step beyond the conventional limits of reality. 
+told me they know about my paranormal abilites, I was desperate to hide.
+they told me that some of the gaming could have not achieved 
+with a normal functioning brain.
 
-And he worked hard for it, every day after school he sat down at the family computer and trained his skills on the March2Success website, an e-learning curriculum provided by the US army.
-
-With a bit of determination those 
- tests and quizzes were not particularly hard to score high 
-
-What he wasn't aware of some of cryptograpic quizzes nor able to solve with a normal functioning brain.
-his results aroused attention and created a link with 
-the Defense Intelligence Agency (DIA) in collab with private research/Stanford (SRI International) 
-were headhunting psychic spies already from a young age.
-
-From that time on they were observing him, directing him and encouraged him to pursue a career within the military.
-Career Navigator
-testing and evaluating his abilities for a career at the military. 
-
-Looking for help with college tuition, he enlisted at the tank force at the age of 18, dreaming of becoming Sgt. and commanding a tank unit in combat.
-(backbone of the military)
-However, his career plans as panzerleader got destroyed.
-and discovered his paranormal abilites, he was desperate to hide.
+General Bernard "Bernie" Boyle Brunswick II 
+not your typical general
 
 
-but instead, together with others, Charlie was amongst them
-they asked him to look into the subterrainian.the spice could be detected by radar, 
-but interference, what was it?
-noone ever anyway did not know what they were doing on the moon.
-(in the early 90s, termed Stargate project, prev.Gondola flame, SUN STREAK, GRILL Flame)
+He was building a special task force  
+a group of supersoldiers
+which should define the requirements of the U.S. Army for future conflict
+"we need people for the New Earth Army
+'to achieve the unachievable, ..
 
-Albert "Bert" Newton Stubblebine III
-Setting up a squad with special powers, a group of supersoldiers.
-previous further testing in the goatlab.
-with zener cards.
-speach at 24:to think the unthinkable, all under army command 1st earht battalion, manifesto.  recruitment ad bue ?27mins<this army ad psychic warfare.
-ESP abilities=extrasensory perception and used as a psychic spy, before the incident, for project grill flame.
+whilst looking for spice in the subterrain by radar
+we got strange interfference, there is something else down there. 
+are there illicit activities going on?
+remote sensing, psychic soldier with ability to know everything bout enemies unit
 
+future conflict will take place subsurface
+and that s where My dreams got buried.
+
+
+they sent me for further training and mission 
+there I met Charlie, struck by her beauty, 
+we both were tested with zener cards.
+third eye spy
+the hypnotizer, magnetism
+
+psi warriors
+a unit of the national center for agriculture
+became the center for the development of drugs for use in brainswashing and interrogation of the CIA
+porton down, salisbory, near stonehenge
+She found out and needed to get rid of her. 
+
+are they covertly giving the funghi to citizens? high dosage, so they are constantly on a horror trip? and paranoid
+maybe the exp turned out the opposite, and brainwash everyone into hippies
+ the images, burnt in 'american memory'
+not fallen, jumped but dropped
+
+
+security clearance >john is danger
+John entered to steal her leftover body. 
+"The truth shall make your free"inscribed at the entry hall of cia headquartes 
+
+
+
+shes dead, did john already steal the body?
+and he threatens to switch off charlie for good,
+while she is already in search for him. 
+
+athologists had to rip the skin off his limbs and tear his body apart, macerate it and send it in chunks to various labs for analysis. In the search for truth, Eric had to tear his father's body limb from limb.
+they need to get rid of him, he could see the full truth already in 2001
+''just one of the risks running with scientific experimentation.''
 
 PRESENT:frustrated with his job, 
 just some job title, as lt.gen. now he would prefer to be in combat but
@@ -44,13 +68,15 @@ most of the time, he does bureaucrazy, this is hell
 is doing some PR for the military coz of his good looks.
 he misses the time when he was a searg and his squad.
 
+where ware and biz meet
 On VteX subsurface warfare is dominant. 
 inner/outer warfare
 the action is subterrainian
 mining (machines need to be protected)
 are there the 'dead people stored?' in storage, is there charlies heart as well?
 they are the resources for making capital.
-
+You are the hero who
+is destined to unearth the truth, buried in eternity, and bring an end to the endless war.
 sand ecology /mining quartz made of magma or hot hydrothermal veins fulgurite  'petrified lightning' is a glass tube formed when electricity strikes sand (is glass just heated sand?) also from atomic blasts, meteor strikes, high-voltage devices falling onto the ground (what is that a plane??) just heat basically?? heat is energy, or?  hollow with rough exterior and smooth interior.  sand = silicon dioxide. (is this diff from silicon??) melted sand= lechatelierite.= amorphous material an
 
  but they still need so much spice for the electricity they use. 
@@ -64,25 +90,8 @@ the juncture of latitude and longitude road near the Fulgur Moron Site.  there i
  So the decision was made to make time obsolete; In the mining farms, they have 7.8646.903 billion little machines that train neural networks, 24/7 The liquid economy on the territory of Mordos on the near, yet dark side of the moon
 everything is underground, if its earth facing no one can see whats goin on there A liquid economy is involved in mining not only the environment but the life-pojtential. 
 
-not everything can be cleary detected with radar, eg the virtual threat
-were there already freedom fighters or will it all start with Charlie and John now?
-divock belongs to them, maybe he s the leader?
-are there illicit activities going on?
-
-maybe introduce another character? maybe a colleague, or supervisor, an evil bitch a URL (unrestricted line) officer?  
-or a sand ecologist
-and he threatens to switch off charlie for good,
-while she is already in search for him. 
-hes not dead maybe, hes in charge but sceptical. 
 scribble:remote viewing 
-remote viewing, soldier with ability to know everything bout enemies unit
-psychic soldier<maybe he knows about divock but woldnt tell, not to endanger c
-the remote viewing (sensing, as proposed by stanford guy) program
-third eye spy
 
-carter was then pres?wanted to keep it open?
-where ware and biz meet<maybe after carter, neoliberalism period, then all shit
-sellars book: with little boy, nuclear third war starting
 
 psychic phenomon, additonal to other senses, ISP, telepathy from one mind to another. telekinesis, transmission of information
 
@@ -98,7 +107,6 @@ true, maybe approved in 100y
 
 defy all logic and statistical probabliltiy
 
-code put in crosword <this was also in the movei with kid. 
 
 early miltary esp experiments: second world war, nazi germany invested much cash , himmler, black sun, ancient writing, 
 annie jacobson book
@@ -119,10 +127,8 @@ from research to operational activieties
 coordinates of the plant
 ioil derricks
 pat price dead, was it a faked death to protect him from the kgb? put other body into his grave?
-psi warriors
 systems exploitation team (set)
 
-gondola whish
 coins placed like ton this cards
  irl flame: joseph mcmoneagle, joined njured in helicopter accedent, spennt time in intelligence, extroarodinge leveels of perception, unmarked enveleope, what was inside, prototype tank, he was inside in some weapon systeym, described it 
 they used it for teheran hostages, embassy, 
@@ -137,14 +143,9 @@ psyop
 subliminal stimuli
 DIA(Defense Intelligence Agency) to CIA<was that in red plenty
 
-
 after work he goes straight to the casino (capital vitalism, hypercapitalism) to spend the tokens he earned.  
 he talked with Clark Carson about the event to come, 
 but then the event just killed space-time? (that was a twilight encounter)
 
-what if in the end they discover that they arent on vtex but on earth, like this book where they thougth they are on a mission to mars, but then they just in a capsule?
 
 
-charlie tries it with magnetism, compass etc, that could be next episode, kind of looking at her journey. 
-
-first encounter at the end between C and J.
