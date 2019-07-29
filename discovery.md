@@ -39,35 +39,18 @@ It felt as if a plug was pulled from a sink and my consciousness drained out. I 
 He told me that my memory had been erased without clarifying the circumstances, and the longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? Now, trembling with fear for my life and totally freaked out by the imminent revelation, I asked for file transfer.
 
 "I will put the folder on ur harddrive. Are you sure you can READ its contents? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
-What the hell was this?
-A redacted jumble of fragments, lossless compressed cropped images
+What the hell was this? A redacted jumble of fragments, lossless compressed cropped images, some of them plain noise, a 'README' with hastily gathered commands ..<br>
+"You encrypted some of the graphics as a precautionary measure, you saw it coming, realizing that the outcome of this project will be catastropic."<br>
+There was also a plain text file named 'John', 
+and after quickly perusing it seemed as I've briefly discussed 
 
-photocopies  noise
-documents 
-a plain text file named "John",
-and a README, with hastily assembled commands
-
-
-what lay hidden in teh collage of the vtex files?
-
-You encrypted some of the images as a precautionary measure, you saw it coming, realizin that the outcome of this project will be catastropic.
-He was watching me looking over my shoulder
+ matter of classified 
+material, was this some sort of a new secret biological weapon? 
 
 "that is from a conversation with John Dyson in 2019, you know John, he serves on the dark side atm."<br>
 John Dyson, that name somehow rang a bell, but I couldn't tell when or where i've heard it before. 
-Looks like I've briefly communicated with JD on the matter of classified 
-material, was this some sort of a new secret biological weapon? 
 
-totally Absorbed into reading and solving the cryptic
-and popping questions in ma head
-overall 
+What lay hidden in the collage of The VteX Files?<br>
 I felt a burning desire to know more, and to find John..
-
-
-"Tell me more, I need your help to find John!"
-But the spectre of Divock disappeared like he came. His last words were:
- U r just a copy of the original, which unfortunately has gone. "<br>
-
-
 
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/divock/letter.gif)

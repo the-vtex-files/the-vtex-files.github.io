@@ -1,21 +1,24 @@
 I, John Dyson, born in Flint, Michigan, to a couple of machinists, experienced kinds of epiphanies already as a child: for instance, on a school trip in August 2001 I've noticed an armored vehicle operating autonomously besides the Wolverine to Ann Arbor Train station. My second sight carries me in a state between active and passive. I perceive signals from the outside, an incomprehensible and chaotic kingdom, which can not be interpreted with words but somehow manifest in my body, mind and soul and as a consequence, turn out to be prophetic. I would have never dared to share my weird experiences with somebody else, as I wasn't keen to end up as a psychopatho-logical case and put on medication with crippling effects. My parents and other people around me were superstitous folk indeed, evangelical protestants, who'd block out any signs of horror as if it didn't belong to nature and solely existed as an alien evil force.<br>
 But wasn't I the one with clairvoyance, the one who saw clearly?
 
-Despite the looming threat of decay and madness, I still had a strong wish to step beyond the conventional limits of reality and secure a top spot in technology. Every day after school I would sit down at the family computer and train my skills with game-based learning. With a bit of determination it wasn't difficult to score high, anyway, my results drew attention and created a link with the Defense Intelligence Agency (DIA), who was headhunting psychic spies already from a young age. Only later I've learnt that the CIA was involved too. I was unaware that I was under observation and steered into pursuing a career within the military ever since.  
+Despite the looming threat of decay and madness, I still had a strong wish to step beyond the conventional limits of reality and secure a top spot in technology. Every day after school I would sit down at the family computer and train my skills with game-based learning. With a bit of determination it wasn't difficult to score high, anyway, my results drew attention and created a link with the Defense Intelligence Agency (DIA), who was headhunting psychic spies already from a young age. Only later I've learnt that the CIA was involved too. 
 
+under observation and steered into pursuing a career within the military ever since.  
 Looking for help with college tuition, I've enlisted at the tank force at the age of 18, dreaming to become part of the army's backbone and command a tank unit in combat as a Sgt.
 engaged with high tech. 
 
+After a couple of weeks, 
 
-told me they know about my paranormal abilites, I was desperate to hide.
+
+I was informed they know about my paranormal abilites, I was desperate to hide.
 they told me that some of the gaming could have not achieved 
 with a normal functioning brain.
+future conflict will take place subsurface
+and that s where My dreams got buried.
 
 General Bernard "Bernie" Boyle Brunswick II 
 not your typical general
-
-
-He was building a special task force  
+was building a special task force  
 a group of supersoldiers
 which should define the requirements of the U.S. Army for future conflict
 "we need people for the New Earth Army
@@ -24,17 +27,29 @@ which should define the requirements of the U.S. Army for future conflict
 whilst looking for spice in the subterrain by radar
 we got strange interfference, there is something else down there. 
 are there illicit activities going on?
+John was inside 
+the weapon system of the freedom fighters and described it. 
+a friendly AI. 
+
 remote sensing, psychic soldier with ability to know everything bout enemies unit
 
-future conflict will take place subsurface
-and that s where My dreams got buried.
 
-
-they sent me for further training and mission 
+they sent me for further training and mission brief
+to the goatlab
+think-tank in Palo Alto, Cali
 there I met Charlie, struck by her beauty, 
+maybe work together as they want to poison teh subterraininas with lsd
 we both were tested with zener cards.
 third eye spy
 the hypnotizer, magnetism
+ Science Applications International Corporation) 
+remote viewing (RV) <maybe like VR now.  'telesthesia'
+ remote viewing describes “seeing remote or hidden objects clairvoyantly with the inner eye, or in alleged out-of-body travel.” Said to be “one of the oldest and most common forms of psi,” it is also “one of the most difficult to explain” (Guiley 1991).
+this is on probability the zener cards. 
+latitde and logitude of the crystal. 
+
+psyop
+subliminal stimuli
 
 psi warriors
 a unit of the national center for agriculture
@@ -90,7 +105,6 @@ the juncture of latitude and longitude road near the Fulgur Moron Site.  there i
  So the decision was made to make time obsolete; In the mining farms, they have 7.8646.903 billion little machines that train neural networks, 24/7 The liquid economy on the territory of Mordos on the near, yet dark side of the moon
 everything is underground, if its earth facing no one can see whats goin on there A liquid economy is involved in mining not only the environment but the life-pojtential. 
 
-scribble:remote viewing 
 
 
 psychic phenomon, additonal to other senses, ISP, telepathy from one mind to another. telekinesis, transmission of information
@@ -106,7 +120,6 @@ is esp p real, ultraviolet not detectd until 1800
 true, maybe approved in 100y
 
 defy all logic and statistical probabliltiy
-
 
 early miltary esp experiments: second world war, nazi germany invested much cash , himmler, black sun, ancient writing, 
 annie jacobson book
@@ -129,19 +142,6 @@ ioil derricks
 pat price dead, was it a faked death to protect him from the kgb? put other body into his grave?
 systems exploitation team (set)
 
-coins placed like ton this cards
- irl flame: joseph mcmoneagle, joined njured in helicopter accedent, spennt time in intelligence, extroarodinge leveels of perception, unmarked enveleope, what was inside, prototype tank, he was inside in some weapon systeym, described it 
-they used it for teheran hostages, embassy, 
-stanford highly involved. (Stanford research institute)(SRI)
- (and subsequently transferred to another think-tank at Palo Alto, California, called Science Applications International Corporation) (Schnabel 1997; Hyman 1996).>"remote sensing" cz other sensers as well involved. 
-remote viewing (RV) <maybe like VR now.  'telesthesia'
- remote viewing describes “seeing remote or hidden objects clairvoyantly with the inner eye, or in alleged out-of-body travel.” Said to be “one of the oldest and most common forms of psi,” it is also “one of the most difficult to explain” (Guiley 1991).
-this is on probability the zener cards. 
-latitde and logitude of the crystal. 
-ghaddafi and hussein tried, but not foudn. 
-psyop
-subliminal stimuli
-DIA(Defense Intelligence Agency) to CIA<was that in red plenty
 
 after work he goes straight to the casino (capital vitalism, hypercapitalism) to spend the tokens he earned.  
 he talked with Clark Carson about the event to come, 
