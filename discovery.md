@@ -19,8 +19,8 @@ It was made of infinite boundless frames and escaped any logic but identificatio
 (it just resembled a wolf, but that wasn't apparent to me back then)<br>
 Finally I was ready for some action.
 
-Reflections of captured radio beams fed my directed-energy weapon (DEW), triggering armor-piercing fin-stabilized discarding sabots (APFSDS) to penetrate the object with kinetic energy. My display indicated a high hit-rate, the wolf however, completely unbothered, was still coming for me with a determined grin on its face. My hands clenched in anger around the railgun and I kept aiming and firing without breathing space nor kill. "Keep calm Charlie", I've tried to reassure myself, "comply with system management standards." Fair enough - I just had the sole option of a standard gun, constructed by our mighty corporation and usually more than efficacious to eliminate all foreign matter as instructed. The wolf stopped moving and stood now right in front of my muzzle.<br>
-"Who the hell are you .. you should be lacerated flesh by now."
+Reflections of captured radio beams fed my directed-energy weapon (DEW), triggering armor-piercing fin-stabilized discarding sabots (APFSDS) to penetrate the object with kinetic energy. My display indicated a high hit-rate, the wolf however, completely unbothered, was still coming for me with a determined grin on its face. My hands clenched in anger around the railgun and I kept aiming and firing without breathing space nor kill. "Keep calm Charlie", I've tried to reassure myself, "comply with system management standards." Fair enough - I just had the sole option of a standard rifle, constructed by our mighty corporation and usually more than efficacious to eliminate all foreign matter as instructed. The wolf stopped moving and stood now right in front of my muzzle.<br>
+"Who the hell are you?" I screamed ".. you should be lacerated flesh by now."
 
 "Hi, I'm Divock", said the chimeric being calmly<br>
 "things got horribly wrong, they've cancelled the future and consequently space-time. you won't notice it atm but I got a msg for you - to know where you're at."<br> 
@@ -36,17 +36,24 @@ Then he pulled an axe from the back of his trousers and split my skull apart.<br
 It felt as if a plug was pulled from a sink and my consciousness drained out. I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. Just being slaughtered, I didn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
 "What message? was that the fucking message? who is the sender?"<br>
 "no, listen, the msg contains documents that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"<br>
-He told me that my memory had been erased without clarifying the circumstances, and the longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? Now, trembling with fear for my life and totally freaked out by the imminent revelation, I asked for file transfer.
-"I will put the folder on ur harddrive. Are you sure you can READ its contents? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br> What the hell was this? A redacted jumble of fragments, lossless compressed cropped images, some of them plain noise, a 'README' with hastily gathered commands ..<br> "You encrypted some of the graphics as a precautionary measure, you saw it coming, realizing that the outcome of this project will be catastropic."<br> There was also a plain text file named 'John', and after quickly perusing it seemed as I've briefly discussed matter of classified material, was this some sort of a new secret biological weapon?  "that is from a conversation with John Dyson in 2019, you know John, he serves on the dark side atm."<br>
+He told me that my memory had been erased without clarifying the circumstances. The longer I was talking to Divock the more my stable reality crumbled, but wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? Now, trembling with fear for my life and totally freaked out by the imminent revelation, I asked for file transfer.
 
-John Dyson, that name somehow rang a bell, but I couldn't tell when or where i've heard it before. 
-maybe a colleague? or my man 
+"I will put the folder on ur harddrive. Are you sure you can READ its contents? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
+What the hell was this? A jumble of fragments, lossless compressed cropped images, some of them plain noise, a 'README' with a list of commands ..<br> 
+"You encrypted some of the graphics as a precautionary measure, you saw it coming, realizing that the outcome of this state-run project will be catastropic."<br> 
+There was also a plain text file named 'John', and after perusing it seemed as I've discussed classified material, about some kind of untraceable plague.<br>
+"that is from a conversation with John Dyson in 2019, you know John, he serves on the bright side atm."<br>
+John Dyson, that name rang a bell, but I couldn't tell when or where i've heard it before. 
 
+that was last year. 
 
+Divock 
+spectre
+wind, weather, clouds
 
-Divock wind spirit, wind and weather, clouds
 wind= allegory for wild hunt
 one wolf followed by many wolfs
+not alien , they are natives
 those creatures double performance : on the one hand fostering on the other destructive. 
 rain good, on the other bad
 eating the ears, or male /female beget (2)

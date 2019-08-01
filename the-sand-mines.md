@@ -7,7 +7,7 @@ under observation and steered into pursuing a career within the military ever si
 Looking for help with college tuition, I've enlisted at the tank force at the age of 18, dreaming to become part of the army's backbone and command a tank unit in combat as a Sgt.
 engaged with high tech. 
 
-After a couple of weeks, 
+After a couple of weeks of Basic Combat Training
 
 
 I was informed they know about my paranormal abilites, I was desperate to hide.
@@ -33,12 +33,20 @@ a friendly AI.
 
 remote sensing, psychic soldier with ability to know everything bout enemies unit
 
-
 they sent me for further training and mission brief
 to the goatlab
 think-tank in Palo Alto, Cali
-there I met Charlie, struck by her beauty, 
-maybe work together as they want to poison teh subterraininas with lsd
+there I met Charlie Hanson,  a quick shag without responsbility, i piss on her grave
+she trusted me LOL
+thank god she been killed, so i can go to the casino, and she wont wreck my nerves. and i can go to the casino, and fuck stupid navie goldsmiths smell foul teeth student slags.   
+
+I#ve obtained a great career at the military
+i wont work with Hanson, but she good enough for giving info
+and then i hand her over, 
+then i get promoted. 
+
+ as they want to poison teh subterraininas with lsd
+but then it wasnt compatible with the Seven Core Army Values.
 we both were tested with zener cards.
 third eye spy
 the hypnotizer, magnetism
@@ -144,6 +152,8 @@ systems exploitation team (set)
 
 
 after work he goes straight to the casino (capital vitalism, hypercapitalism) to spend the tokens he earned.  
+to fuck some young hoes, im free and horny, 
+thank god in the virutal world, i dont need a wfe to clean and wahs my dishes, 
 he talked with Clark Carson about the event to come, 
 but then the event just killed space-time? (that was a twilight encounter)
 
