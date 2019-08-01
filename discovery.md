@@ -37,20 +37,24 @@ It felt as if a plug was pulled from a sink and my consciousness drained out. I 
 "What message? was that the fucking message? who is the sender?"<br>
 "no, listen, the msg contains documents that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"<br>
 He told me that my memory had been erased without clarifying the circumstances, and the longer I was talking to Divock the more my stable reality crumbled. But wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? Now, trembling with fear for my life and totally freaked out by the imminent revelation, I asked for file transfer.
+"I will put the folder on ur harddrive. Are you sure you can READ its contents? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br> What the hell was this? A redacted jumble of fragments, lossless compressed cropped images, some of them plain noise, a 'README' with hastily gathered commands ..<br> "You encrypted some of the graphics as a precautionary measure, you saw it coming, realizing that the outcome of this project will be catastropic."<br> There was also a plain text file named 'John', and after quickly perusing it seemed as I've briefly discussed matter of classified material, was this some sort of a new secret biological weapon?  "that is from a conversation with John Dyson in 2019, you know John, he serves on the dark side atm."<br>
 
-"I will put the folder on ur harddrive. Are you sure you can READ its contents? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
-What the hell was this? A redacted jumble of fragments, lossless compressed cropped images, some of them plain noise, a 'README' with hastily gathered commands ..<br>
-"You encrypted some of the graphics as a precautionary measure, you saw it coming, realizing that the outcome of this project will be catastropic."<br>
-There was also a plain text file named 'John', 
-and after quickly perusing it seemed as I've briefly discussed 
-
- matter of classified 
-material, was this some sort of a new secret biological weapon? 
-
-"that is from a conversation with John Dyson in 2019, you know John, he serves on the dark side atm."<br>
 John Dyson, that name somehow rang a bell, but I couldn't tell when or where i've heard it before. 
+maybe a colleague? or my man 
 
-What lay hidden in the collage of The VteX Files?<br>
-I felt a burning desire to know more, and to find John..
+
+
+Divock wind spirit, wind and weather, clouds
+wind= allegory for wild hunt
+one wolf followed by many wolfs
+those creatures double performance : on the one hand fostering on the other destructive. 
+rain good, on the other bad
+eating the ears, or male /female beget (2)
+touch with creature > physical plague
+^^during harvest (time of fullness/time that excites every senses)
+the spirit /creature is in the last sheaf(bündel)<the one who cuts the last sheaf is throughtout the next year the 'wolf'<portrays it. 
+dangerous to touch!
+
+What lay hidden in the collage of The VteX Files?<br> 
 
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/divock/letter.gif)
