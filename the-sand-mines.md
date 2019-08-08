@@ -1,69 +1,46 @@
 I, John Dyson, born in Flint, Michigan, to a couple of machinists, experienced kinds of epiphanies already as a child: for instance, on a school trip in August 2001 I've noticed an armored vehicle operating autonomously besides the Wolverine to Ann Arbor Train station. My second sight carries me in a state between active and passive. I perceive signals from the outside, an incomprehensible and chaotic kingdom, which can not be interpreted with words but somehow manifest in my body, mind and soul and as a consequence, turn out to be prophetic. I would have never dared to share my weird experiences with somebody else, as I wasn't keen to end up as a psychopatho-logical case and put on medication with crippling effects. My parents and other people around me were superstitous folk indeed, evangelical protestants, who'd block out any signs of horror as if it didn't belong to nature and solely existed as an alien evil force.<br>
 But wasn't I the one with clairvoyance, the one who saw clearly?
 
-Despite the looming threat of decay and madness, I still had a strong wish to step beyond the conventional limits of reality and secure a top spot in technology. Every day after school I would sit down at the family computer and train my skills with game-based learning. With a bit of determination it wasn't difficult to score high, anyway, my results drew attention and created a link with the Defense Intelligence Agency (DIA), who was headhunting psychic spies already from a young age. Only later I've learnt that the CIA was involved too. 
+Despite the looming threat of decay and madness, I still had a strong wish to step beyond the conventional limits of reality and secure a top spot in technology. Every day after school I would sit down at the family computer and train my skills with game-based learning. With a bit of determination it wasn't difficult to score high, anyway, my results drew attention and created a link with the Defense Intelligence Agency (DIA), who was headhunting psychic spies already from a young age. Only later I've learnt that the CIA was involved too. I was unaware that I was under observation ever since and deliberately driven into pursuing a career within the military. Looking for help with college tuition, I've enlisted at the tank force at the age of 18, dreaming to become part of the army's backbone and command a tank unit in combat, already imagining myself as a Sgt with specialist knowledge in high tech. 
 
-under observation and steered into pursuing a career within the military ever since.  
-Looking for help with college tuition, I've enlisted at the tank force at the age of 18, dreaming to become part of the army's backbone and command a tank unit in combat as a Sgt.
-engaged with high tech. 
+After the blue phase of basic training at Fort Benning I was called to see my supervisor, I've expected nothing unusual but on entering his office I was met 
+by some lieutenant colonel Branson and a civilian, a geologist, who was introduced as Professor Oersted. Colonel Branson informed me that they knew about my paranormal abilites, 
 
-After a couple of weeks of Basic Combat Training
+gaming activities could have not achieved with a healthy normal functioning brain.
+Shocked about the discovery I was so desperately trying to hide, 
+the professor opened a really ludicrous story to me. 
+whilst penetrating moon soil with radar to find spice to fuel among other things
+they got very strange interference in the subterranean, dirty signals as he described it.
+"There is something else down there. We MUST know what it is, and you will be one of the chosen few to find it."
 
+So I couldnt continue with my chosen MOS, not allowed to go into the field with the rest of the platoon?
+and do individual training underground, 
+ and that s where My dreams got buried.
 
-I was informed they know about my paranormal abilites, I was desperate to hide.
-they told me that some of the gaming could have not achieved 
-with a normal functioning brain.
-future conflict will take place subsurface
-and that s where My dreams got buried.
-
-General Bernard "Bernie" Boyle Brunswick II 
-not your typical general
-was building a special task force  
-a group of supersoldiers
+General Bernard "Bernie" Malmesbury II was not your typical general. 
+like grandpop with weird ideas. 
+He was building a special task force, a group of supersoldiers
+warrior monks, 
 which should define the requirements of the U.S. Army for future conflict
+cunning, countercultural principles, 
 "we need people for the New Earth Army
 'to achieve the unachievable, ..
 
-whilst looking for spice in the subterrain by radar
-we got strange interfference, there is something else down there. 
-are there illicit activities going on?
-John was inside 
-the weapon system of the freedom fighters and described it. 
-a friendly AI. 
-
+they sent me for further training and mission 
 remote sensing, psychic soldier with ability to know everything bout enemies unit
-
-they sent me for further training and mission brief
-to the goatlab
-think-tank in Palo Alto, Cali
-there I met Charlie Hanson,  a quick shag without responsbility, i piss on her grave
-she trusted me LOL
-thank god she been killed, so i can go to the casino, and she wont wreck my nerves. and i can go to the casino, and fuck stupid navie goldsmiths smell foul teeth student slags.   
-
-I#ve obtained a great career at the military
-i wont work with Hanson, but she good enough for giving info
-and then i hand her over, 
-then i get promoted. 
-
- as they want to poison teh subterraininas with lsd
-but then it wasnt compatible with the Seven Core Army Values.
+there I met Charlie, struck by her beauty, 
 we both were tested with zener cards.
 third eye spy
 the hypnotizer, magnetism
- Science Applications International Corporation) 
-remote viewing (RV) <maybe like VR now.  'telesthesia'
- remote viewing describes “seeing remote or hidden objects clairvoyantly with the inner eye, or in alleged out-of-body travel.” Said to be “one of the oldest and most common forms of psi,” it is also “one of the most difficult to explain” (Guiley 1991).
-this is on probability the zener cards. 
-latitde and logitude of the crystal. 
-
-psyop
-subliminal stimuli
 
 psi warriors
 a unit of the national center for agriculture
 became the center for the development of drugs for use in brainswashing and interrogation of the CIA
 porton down, salisbory, near stonehenge
 She found out and needed to get rid of her. 
+
+
+ts laplaces demon
 
 are they covertly giving the funghi to citizens? high dosage, so they are constantly on a horror trip? and paranoid
 maybe the exp turned out the opposite, and brainwash everyone into hippies
@@ -75,9 +52,8 @@ security clearance >john is danger
 John entered to steal her leftover body. 
 "The truth shall make your free"inscribed at the entry hall of cia headquartes 
 
-
-
 shes dead, did john already steal the body?
+maybe them unburied it
 and he threatens to switch off charlie for good,
 while she is already in search for him. 
 
@@ -113,6 +89,7 @@ the juncture of latitude and longitude road near the Fulgur Moron Site.  there i
  So the decision was made to make time obsolete; In the mining farms, they have 7.8646.903 billion little machines that train neural networks, 24/7 The liquid economy on the territory of Mordos on the near, yet dark side of the moon
 everything is underground, if its earth facing no one can see whats goin on there A liquid economy is involved in mining not only the environment but the life-pojtential. 
 
+scribble:remote viewing 
 
 
 psychic phenomon, additonal to other senses, ISP, telepathy from one mind to another. telekinesis, transmission of information
@@ -128,6 +105,7 @@ is esp p real, ultraviolet not detectd until 1800
 true, maybe approved in 100y
 
 defy all logic and statistical probabliltiy
+
 
 early miltary esp experiments: second world war, nazi germany invested much cash , himmler, black sun, ancient writing, 
 annie jacobson book
@@ -150,10 +128,21 @@ ioil derricks
 pat price dead, was it a faked death to protect him from the kgb? put other body into his grave?
 systems exploitation team (set)
 
+coins placed like ton this cards
+ irl flame: joseph mcmoneagle, joined njured in helicopter accedent, spennt time in intelligence, extroarodinge leveels of perception, unmarked enveleope, what was inside, prototype tank, he was inside in some weapon systeym, described it 
+they used it for teheran hostages, embassy, 
+stanford highly involved. (Stanford research institute)(SRI)
+ (and subsequently transferred to another think-tank at Palo Alto, California, called Science Applications International Corporation) (Schnabel 1997; Hyman 1996).>"remote sensing" cz other sensers as well involved. 
+remote viewing (RV) <maybe like VR now.  'telesthesia'
+ remote viewing describes “seeing remote or hidden objects clairvoyantly with the inner eye, or in alleged out-of-body travel.” Said to be “one of the oldest and most common forms of psi,” it is also “one of the most difficult to explain” (Guiley 1991).
+this is on probability the zener cards. 
+latitde and logitude of the crystal. 
+ghaddafi and hussein tried, but not foudn. 
+psyop
+subliminal stimuli
+DIA(Defense Intelligence Agency) to CIA<was that in red plenty
 
 after work he goes straight to the casino (capital vitalism, hypercapitalism) to spend the tokens he earned.  
-to fuck some young hoes, im free and horny, 
-thank god in the virutal world, i dont need a wfe to clean and wahs my dishes, 
 he talked with Clark Carson about the event to come, 
 but then the event just killed space-time? (that was a twilight encounter)
 

@@ -43,25 +43,24 @@ What the hell was this? A jumble of fragments, lossless compressed cropped image
 "You encrypted some of the graphics as a precautionary measure, you saw it coming, realizing that the outcome of this state-run project will be catastropic."<br> 
 There was also a plain text file named 'John', and after perusing it seemed as I've discussed classified material, about some kind of untraceable plague.<br>
 "that is from a conversation with John Dyson in 2019, you know John, he serves on the bright side atm."<br>
-John Dyson, that name rang a bell, but I couldn't tell when or where i've heard it before. 
+John Dyson, that name rang a bell, but I couldn't tell when or where i've heard it before.<br>
+"That was timestamped last year and I don't remember a thing? Was it me who wrote "look for John"?"<br>
 
-that was last year. 
+Divock could still stick around, harvest season was still over a fortnight away.
+a time of abundance, a time that excites all senses
+if Charlie is still around then she would again cut the last sheaf
+but now the cycle is broken
 
-Divock 
-spectre
-wind, weather, clouds
+Did he touch her? so she got the plague
 
-wind= allegory for wild hunt
-one wolf followed by many wolfs
-not alien , they are natives
-those creatures double performance : on the one hand fostering on the other destructive. 
-rain good, on the other bad
-eating the ears, or male /female beget (2)
-touch with creature > physical plague
-^^during harvest (time of fullness/time that excites every senses)
-the spirit /creature is in the last sheaf(bündel)<the one who cuts the last sheaf is throughtout the next year the 'wolf'<portrays it. 
-dangerous to touch!
+ But his home is the wild hunt, he is the bringer of the storm
+he is the creature of double performance
+he cares and destroys
+inseminating the crop, and eating it
+according to the legend on his return he won't come alone, followed by many wolfs
+
 
 What lay hidden in the collage of The VteX Files?<br> 
 
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/divock/letter.gif)
+
