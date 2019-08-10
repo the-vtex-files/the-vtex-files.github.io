@@ -33,34 +33,34 @@ Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike y
 Then he pulled an axe from the back of his trousers and split my skull apart.<br> 
 "See, I am REAL. A friend from the past, who just allowed for some sunshine flowing into u."
 
-It felt as if a plug was pulled from a sink and my consciousness drained out. I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. Just being slaughtered, I didn't want to show any weakness, how would it have benefited the situation anyway? I was naked.<br>
+It felt as if a plug was pulled from a sink and consciousness drained out of my mind. I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. I didn't want to show any weakness, how would it have benefited the situation anyway? I was naked<br>
 "What message? was that the fucking message? who is the sender?"<br>
 "no, listen, the msg contains documents that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"<br>
-He told me that my memory had been erased without clarifying the circumstances. The longer I was talking to Divock the more my stable reality crumbled, but wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? Now, trembling with fear for my life and totally freaked out by the imminent revelation, I asked for file transfer.
+He told me that my memory had been erased without clarifying the circumstances and the longer I was talking to Divock the more my stable reality crumbled, but wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? Now, trembling with fear for my life and totally freaked out by the imminent revelation, I asked for file transfer.
 
 "I will put the folder on ur harddrive. Are you sure you can READ its contents? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
 What the hell was this? A jumble of fragments, lossless compressed cropped images, some of them plain noise, a 'README' with a list of commands ..<br> 
-"You encrypted some of the graphics as a precautionary measure, you saw it coming, realizing that the outcome of this state-run project will be catastropic."<br> 
+"You encrypted some of the graphics as a precautionary measure, you saw it coming, realizing that the outcome of this state-run project will be catastrophic."<br> 
 There was also a plain text file named 'John', and after perusing it seemed as I've discussed classified material, about some kind of untraceable plague.<br>
 "that is from a conversation with John Dyson in 2019, you know John, he serves on the bright side atm."<br>
 John Dyson, that name rang a bell, but I couldn't tell when or where i've heard it before.<br>
-"That was timestamped last year and I don't remember a thing? Was it me who wrote "look for John"?"<br>
+"That was timestamped last year and I don't remember a thing?"<br>
+![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif)
 
-Divock could still stick around, harvest season was still over a fortnight away.
-a time of abundance, a time that excites all senses
-if Charlie is still around then she would again cut the last sheaf
-but now the cycle is broken
+Divock could still stick around, harvest time was over a fortnight away. 
+But his home is the wild hunt and he has to bring the storm and clouds. 
+According to the legend he will be followed by many wolves
 
-Did he touch her? so she got the plague
 
- But his home is the wild hunt, he is the bringer of the storm
-he is the creature of double performance
-he cares and destroys
-inseminating the crop, and eating it
-according to the legend on his return he won't come alone, followed by many wolfs
+Charlie always did the harvesting, which is rather unlikely this time, 
+the time of abundance, when catching the plague.
+cutting the last grain stalk 
+collecting the last shear 
 
+the incarnation of conflicting nature
+creative and destructive force
+inseminating and destroying the crop 
 
 What lay hidden in the collage of The VteX Files?<br> 
 
-![](https://github.com/the-vtex-files/the-vtex-files.github.io/divock/letter.gif)
 
