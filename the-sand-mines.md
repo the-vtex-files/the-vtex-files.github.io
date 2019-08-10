@@ -3,34 +3,34 @@ But wasn't I the one with clairvoyance, the one who saw clearly?
 
 Despite the looming threat of decay and madness, I still had a strong wish to step beyond the conventional limits of reality and secure a top spot in technology. Every day after school I would sit down at the family computer and train my skills with game-based learning. With a bit of determination it wasn't difficult to score high, anyway, my results drew attention and created a link with the Defense Intelligence Agency (DIA), who was headhunting psychic spies already from a young age. Only later I've learnt that the CIA was involved too. I was unaware that I was under observation ever since and deliberately driven into pursuing a career within the military. Looking for help with college tuition, I've enlisted at the tank force at the age of 18, dreaming to become part of the army's backbone and command a tank unit in combat, already imagining myself as a Sgt with specialist knowledge in high tech. 
 
-After the blue phase of basic training at Fort Benning I was called to see my supervisor, I've expected nothing unusual but on entering his office I was met 
-by some lieutenant colonel Branson and a civilian, a geologist, who was introduced as Professor Oersted. Colonel Branson informed me that they knew about my paranormal abilites, 
+After the blue phase of basic training at Fort Benning I was called to see my supervisor, nothing out of the ordinary, but in the office I was met by a certain lieutenant colonel Branson, who informed me that they knew about my paranormal abilities as some of my ingame activities were inexplicable for a normal healthy functioning mind.
 
-gaming activities could have not achieved with a healthy normal functioning brain.
-Shocked about the discovery I was so desperately trying to hide, 
-the professor opened a really ludicrous story to me. 
-whilst penetrating moon soil with radar to find spice to fuel among other things
-they got very strange interference in the subterranean, dirty signals as he described it.
-"There is something else down there. We MUST know what it is, and you will be one of the chosen few to find it."
-
+Still not recovered from this initial shock, he revealed a really ludicrous story
+Allegedly, whilst penetrating moon soil with radar to find spice for fuel, 
+they got some really weird radio interference subterranean, dirty signals as he refered to it.
+ "There is something down there. We MUST know what it is, and you will be in a special task force to find out."
 So I couldnt continue with my chosen MOS, not allowed to go into the field with the rest of the platoon?
 and do individual training underground, 
  and that s where My dreams got buried.
 
+they sent me for further training and mission 
+
 General Bernard "Bernie" Malmesbury II was not your typical general. 
 like grandpop with weird ideas. 
-He was building a special task force, a group of supersoldiers
-warrior monks, 
+He was building a special task force, a group of supersoldiers, warrior monks, 
+cunning 
 which should define the requirements of the U.S. Army for future conflict
-cunning, countercultural principles, 
+countercultural principles, 
+
 "we need people for the New Earth Army
 'to achieve the unachievable, ..
+think the unthinkable 
 
-they sent me for further training and mission 
-remote sensing, psychic soldier with ability to know everything bout enemies unit
-there I met Charlie, struck by her beauty, 
+I first  met Charlie, 
 we both were tested with zener cards.
-third eye spy
+to see whos #1 third eye spy
+
+remote sensing, psychic soldier with ability to know everything bout enemies unit
 the hypnotizer, magnetism
 
 psi warriors
@@ -38,7 +38,6 @@ a unit of the national center for agriculture
 became the center for the development of drugs for use in brainswashing and interrogation of the CIA
 porton down, salisbory, near stonehenge
 She found out and needed to get rid of her. 
-
 
 ts laplaces demon
 
