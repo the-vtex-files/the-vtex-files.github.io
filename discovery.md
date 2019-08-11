@@ -45,15 +45,14 @@ There was also a plain text file named 'John', and after perusing it seemed as I
 "that is from a conversation with John Dyson in 2019, you know John, he serves on the bright side atm."<br>
 John Dyson, that name rang a bell, but I couldn't tell when or where i've heard it before.<br>
 "That was timestamped last year and I don't remember a thing?"<br>
-"Don't worry, your memories are canned, we took care of that." were the last words of the spectre before it disappeared into thin air.
+"Don't worry, your memories are canned, we took care of that." were the last words of the spectre before it disappeared into thin air.<br>
+What lay hidden in the collage of The VteX Files? 
 
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif)
 
-Divock could still stick around, harvest time was over a fortnight away, but his home is the wild hunt and his destiny to inseminate the grain and to deliver the storm and clouds. His return is unsure, according to the legend he is followed by legions of wolves who will roam in the ruins of the city.
+Divock could still stick around, harvest time was over a fortnight away, but his home is the wild hunt and his destiny to inseminate the grain and to deliver the storm and clouds. His return is unsure, according to the legend he is followed by legions of wolves who will roam the ruins of VteX.
 
-It is also rather unlikely that Charlie will be there to cut the last grain stalk and collect the last shear as she catched the plague to become the incarnation of conflicting nature
-creative and destructive force
+It will be rather unlikely that Charlie will be there to scythe the last corn stalk and bundle the last shock as she catched the plague to become the incarnation of conflicting nature a creative and destructive force of chaos.
 
-What lay hidden in the collage of The VteX Files?<br> 
 
 

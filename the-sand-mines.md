@@ -3,54 +3,55 @@ But wasn't I the one with clairvoyance, the one who saw clearly?
 
 Despite the looming threat of decay and madness, I still had a strong wish to step beyond the conventional limits of reality and secure a top spot in technology. Every day after school I would sit down at the family computer and train my skills with game-based learning. With a bit of determination it wasn't difficult to score high, anyway, my results drew attention and created a link with the Defense Intelligence Agency (DIA), who was headhunting psychic spies already from a young age. Only later I've learnt that the CIA was involved too. I was unaware that I was under observation ever since and deliberately driven into pursuing a career within the military. Looking for help with college tuition, I've enlisted at the tank force at the age of 18, dreaming to become part of the army's backbone and command a tank unit in combat, already imagining myself as a Sgt with specialist knowledge in high tech. 
 
-After the blue phase of basic training at Fort Benning I was called to see my supervisor, nothing out of the ordinary, but in the office I was met by a certain lieutenant colonel Branson, who informed me that they knew about my paranormal abilities as some of my ingame activities were inexplicable for a normal healthy functioning mind.
+After the blue phase of basic training at Fort Benning I was called to see my supervisor, nothing out of the ordinary, but in the office I was met by a certain lieutenant colonel Branson, who informed me that they knew about my paranormal abilities as some of my ingame activities were inexplicable for a normal healthy functioning mind. Yet not recovered from this initial shock, he revealed a truly hair-raising story, allegedly whilst penetrating moon soil with radar to find spice for fuel, they got enormous peculiar subterrestrial radio interference, dirty signals as he referred to it.<br>
+"There is something down there. We MUST know what it is, and you will be assigned to a special task force to find out."<br>
+"That means I won't proceed to my chosen MOS, Sir?"<br>
+"Correct, we will send you for AIT and pre-mission briefing to Palo Alto, CA."
 
-Still not recovered from this initial shock, he revealed a really ludicrous story
-Allegedly, whilst penetrating moon soil with radar to find spice for fuel, 
-they got some really weird radio interference subterranean, dirty signals as he refered to it.
- "There is something down there. We MUST know what it is, and you will be in a special task force to find out."
-So I couldnt continue with my chosen MOS, not allowed to go into the field with the rest of the platoon?
-and do individual training underground, 
- and that s where My dreams got buried.
+General Bernard "Bernie" Malmesbury II was not your typical general, more like a gentle grandpa and a maniac for pioneering ideas. He was building a team of supersoldiers, in the tradition of cunning warrior monks, who embody countercultural principles. 
+Upon arrival at Palo Alto a video with his welcome address
+"The New Earth Army will defy all logic and statistical probabliltiy and definethe requirements of the U.S. Army for future conflict. 
+You will be trained to achieve the unachievable, think the unthinkable and
+ will be all that you can be."
 
-they sent me for further training and mission 
+I first met Charlie at the goatlab, where we were tested with zener cards 
+in groups of two to find out the strengths and field of perception of the future psi warriors. 
+in pre- and retrocognition, communication with the dead, psychometry
+additonal to other senses, ISP, telepathy from one mind to another. telekinesis, transmission of information
 
-General Bernard "Bernie" Malmesbury II was not your typical general. 
-like grandpop with weird ideas. 
-He was building a special task force, a group of supersoldiers, warrior monks, 
-cunning 
-which should define the requirements of the U.S. Army for future conflict
-countercultural principles, 
+we were competing in whos the #1 third eye spy. 
 
-"we need people for the New Earth Army
-'to achieve the unachievable, ..
-think the unthinkable 
-
-I first  met Charlie, 
-we both were tested with zener cards.
-to see whos #1 third eye spy
-
-remote sensing, psychic soldier with ability to know everything bout enemies unit
-the hypnotizer, magnetism
-
-psi warriors
-a unit of the national center for agriculture
+She was a unit of the national center for agriculture
 became the center for the development of drugs for use in brainswashing and interrogation of the CIA
-porton down, salisbory, near stonehenge
-She found out and needed to get rid of her. 
-
-ts laplaces demon
-
 are they covertly giving the funghi to citizens? high dosage, so they are constantly on a horror trip? and paranoid
 maybe the exp turned out the opposite, and brainwash everyone into hippies
  the images, burnt in 'american memory'
 not fallen, jumped but dropped
 
+scribble:remote viewing 
+maybe he has access to Cs machine, the object. 
+and then you go underground.
+And there's my dreams got buried.
 
+polygraph tests <lügendetektor
+
+ irl flame: joseph mcmoneagle, joined njured in helicopter accedent, spennt time in intelligence, extroarodinge leveels of perception, unmarked enveleope, what was inside, prototype tank, he was inside in some weapon systeym, described it 
+ (and subsequently transferred to another think-tank at Palo Alto, California, called Science Applications International Corporation) (Schnabel 1997; Hyman 1996).>"remote sensing" cz other sensers as well involved. 
+remote viewing (RV) <maybe like VR now.  'telesthesia'
+ remote viewing describes “seeing remote or hidden objects clairvoyantly with the inner eye, or in alleged out-of-body travel.” Said to be “one of the oldest and most common forms of psi,” it is also “one of the most difficult to explain” (Guiley 1991).
+this is on probability the zener cards. 
+latitde and logitude of the crystal. 
+ghaddafi and hussein tried, but not foudn. 
+psyop
+subliminal stimuli
+DIA(Defense Intelligence Agency) to CIA<was that in red plenty
+remote sensing, psychic soldier with ability to know everything bout enemies unit
+the hypnotizer, magnetism
+ts laplaces demon
+my oath, behavior of army is outrageous and represents a blatant breach of national and international rights, geneva
 security clearance >john is danger
 John entered to steal her leftover body. 
 "The truth shall make your free"inscribed at the entry hall of cia headquartes 
-
 shes dead, did john already steal the body?
 maybe them unburied it
 and he threatens to switch off charlie for good,
@@ -88,60 +89,7 @@ the juncture of latitude and longitude road near the Fulgur Moron Site.  there i
  So the decision was made to make time obsolete; In the mining farms, they have 7.8646.903 billion little machines that train neural networks, 24/7 The liquid economy on the territory of Mordos on the near, yet dark side of the moon
 everything is underground, if its earth facing no one can see whats goin on there A liquid economy is involved in mining not only the environment but the life-pojtential. 
 
-scribble:remote viewing 
-
-
-psychic phenomon, additonal to other senses, ISP, telepathy from one mind to another. telekinesis, transmission of information
-
-precognition, to see the future, retrocognition to see in the past?<smth that happened in the past no one knows about.
-
-touching a physical object, psychometry
-maybe he has access to Cs machine, the object. 
-communication with the dead
-
-not approved by science but by military
-is esp p real, ultraviolet not detectd until 1800
-true, maybe approved in 100y
-
-defy all logic and statistical probabliltiy
-
-
-early miltary esp experiments: second world war, nazi germany invested much cash , himmler, black sun, ancient writing, 
-annie jacobson book
-research by the nazi, then the russions then cia, ninal kulagina, telekinesis, brainwash to recruit
-pars psychological unit at oxforr, abrams?steven I abrams
-nor understand or control it
-the hoffman coffer, sychotronic reseach, 
-succes, why so mauch money to be stand
-targ and puthoff, moving object with the mind
-polygraph tests
-uri geller, isrealy, problem for the cia presented to the cia, ingo Swan, 
-geller not included
-actually not much money, only quarter million
-mkultra, Sidney, gottlieb, wiht lsd
-Pat Price , world map with pins in it, a nuclear submarine tracking 
-sugar grove, psychic la
-from research to operational activieties
-coordinates of the plant
-ioil derricks
-pat price dead, was it a faked death to protect him from the kgb? put other body into his grave?
-systems exploitation team (set)
-
-coins placed like ton this cards
- irl flame: joseph mcmoneagle, joined njured in helicopter accedent, spennt time in intelligence, extroarodinge leveels of perception, unmarked enveleope, what was inside, prototype tank, he was inside in some weapon systeym, described it 
-they used it for teheran hostages, embassy, 
-stanford highly involved. (Stanford research institute)(SRI)
- (and subsequently transferred to another think-tank at Palo Alto, California, called Science Applications International Corporation) (Schnabel 1997; Hyman 1996).>"remote sensing" cz other sensers as well involved. 
-remote viewing (RV) <maybe like VR now.  'telesthesia'
- remote viewing describes “seeing remote or hidden objects clairvoyantly with the inner eye, or in alleged out-of-body travel.” Said to be “one of the oldest and most common forms of psi,” it is also “one of the most difficult to explain” (Guiley 1991).
-this is on probability the zener cards. 
-latitde and logitude of the crystal. 
-ghaddafi and hussein tried, but not foudn. 
-psyop
-subliminal stimuli
-DIA(Defense Intelligence Agency) to CIA<was that in red plenty
-
-after work he goes straight to the casino (capital vitalism, hypercapitalism) to spend the tokens he earned.  
+fter work he goes straight to the casino (capital vitalism, hypercapitalism) to spend the tokens he earned.  
 he talked with Clark Carson about the event to come, 
 but then the event just killed space-time? (that was a twilight encounter)
 
