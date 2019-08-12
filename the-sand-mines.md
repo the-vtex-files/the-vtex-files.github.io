@@ -3,46 +3,59 @@ But wasn't I the one with clairvoyance, the one who saw clearly?
 
 Despite the looming threat of decay and madness, I still had a strong wish to step beyond the conventional limits of reality and secure a top spot in technology. Every day after school I would sit down at the family computer and train my skills with game-based learning. With a bit of determination it wasn't difficult to score high, anyway, my results drew attention and created a link with the Defense Intelligence Agency (DIA), who was headhunting psychic spies already from a young age. Only later I've learnt that the CIA was involved too. I was unaware that I was under observation ever since and deliberately driven into pursuing a career within the military. Looking for help with college tuition, I've enlisted at the tank force at the age of 18, dreaming to become part of the army's backbone and command a tank unit in combat, already imagining myself as a Sgt with specialist knowledge in high tech. 
 
-After the blue phase of basic training at Fort Benning I was called to see my supervisor, nothing out of the ordinary, but in the office I was met by a certain lieutenant colonel Branson, who informed me that they knew about my paranormal abilities as some of my ingame activities were inexplicable for a normal healthy functioning mind. Yet not recovered from this initial shock, he revealed a truly hair-raising story, allegedly whilst penetrating moon soil with radar to find spice for fuel, they got enormous peculiar subterrestrial radio interference, dirty signals as he referred to it.<br>
+After the blue phase of basic training at Fort Benning I was called to see my supervisor, nothing out of the ordinary, but in the office I was met by a certain lieutenant colonel Branson, who informed me that they knew about my paranormal abilities, as some of my ingame activities were unfeasible for a normal healthy functioning mind. Then, yet not recovered from this initial shock, he revealed a truly hair-raising story, allegedly whilst penetrating moon soil with radar to find spice for fuel, they got enormous peculiar subterrestrial radio interference, dirty signals as he referred to it.<br>
 "There is something down there. We MUST know what it is, and you will be assigned to a special task force to find out."<br>
 "That means I won't proceed to my chosen MOS, Sir?"<br>
 "Correct, we will send you for AIT and pre-mission briefing to Palo Alto, CA."
 
-General Bernard "Bernie" Malmesbury II was not your typical general, more like a gentle grandpa and a maniac for pioneering ideas. He was building a team of supersoldiers, in the tradition of cunning warrior monks, who embody countercultural principles. 
-Upon arrival at Palo Alto a video with his welcome address
-"The New Earth Army will defy all logic and statistical probabliltiy and definethe requirements of the U.S. Army for future conflict. 
-You will be trained to achieve the unachievable, think the unthinkable and
- will be all that you can be."
+Branson was commissioned to build a platoon of supersoldiers in the tradition of cunning warrior monks. The recruits had to undergo intensive training in Eastern mind-body practices and internalize countercultural principles, finally enabling them to confuse the enemy with a lot of tricks. 
+One of them was precision bombardment with symbols and sounds of peace. 
+ Generally speaking, cunning warfare is all about the supremacy of the human system over technology. 
+Upon arrival at Palo Alto, our group, consisting of a handful of otherwise unemployable freaks, got a first taste of the concept by his welcome address
+"Soldiers of The First Earth Battalion will defy all logic and statistical probabliltiy and define the requirements of the U.S. Army for future conflict. 
+You will be trained to dare thinking the unthinkable, achieve the unachievableand. Programmed deficiencey will be reprogrammed, how fast depends solely on you. Put simply, you will be all that you can be."
+So far so good. 
+
+General Bernard "Bernie" Malmesbury II was not your typical general, he looked more like a benevolent grandpa with a frenzy for esoterism. 
+His doctrine a bit distorted, just like Branson he wasn't accepting the limits culture imposed on us, like solid matter shouldn't be an obstacle, but walking through walls?
+ 
+and subsequently transferred to another think-tank at Palo Alto, California, called Science Applications International Corporation
+
 
 I first met Charlie at the goatlab, where we were tested with zener cards 
-in groups of two to find out the strengths and field of perception of the future psi warriors. 
-in pre- and retrocognition, communication with the dead, psychometry
-additonal to other senses, ISP, telepathy from one mind to another. telekinesis, transmission of information
-
+in groups of two to find out about the strengths and specialities 
+of the future psi warriors. 
+pre- and retrocognition, communication with the dead, psychometry
+telekinesis, transmission of information
+experimental
+the communication via telepathy was trained 
 we were competing in whos the #1 third eye spy. 
+remote sensing
+she was like acid inside me. 
+'telesthesia'
+ remote viewing describes “seeing remote or hidden objects clairvoyantly with the inner eye, or in alleged out-of-body travel.” Said to be “one of the oldest and most common forms of psi,” it is also “one of the most difficult to explain” (Guiley 1991).
 
-She was a unit of the national center for agriculture
-became the center for the development of drugs for use in brainswashing and interrogation of the CIA
-are they covertly giving the funghi to citizens? high dosage, so they are constantly on a horror trip? and paranoid
-maybe the exp turned out the opposite, and brainwash everyone into hippies
- the images, burnt in 'american memory'
-not fallen, jumped but dropped
+no limits travel wiht the mind. 
 
-scribble:remote viewing 
-maybe he has access to Cs machine, the object. 
+All sounded well, but then we got divided
 and then you go underground.
 And there's my dreams got buried.
-
-polygraph tests <lügendetektor
-
- irl flame: joseph mcmoneagle, joined njured in helicopter accedent, spennt time in intelligence, extroarodinge leveels of perception, unmarked enveleope, what was inside, prototype tank, he was inside in some weapon systeym, described it 
- (and subsequently transferred to another think-tank at Palo Alto, California, called Science Applications International Corporation) (Schnabel 1997; Hyman 1996).>"remote sensing" cz other sensers as well involved. 
-remote viewing (RV) <maybe like VR now.  'telesthesia'
- remote viewing describes “seeing remote or hidden objects clairvoyantly with the inner eye, or in alleged out-of-body travel.” Said to be “one of the oldest and most common forms of psi,” it is also “one of the most difficult to explain” (Guiley 1991).
-this is on probability the zener cards. 
-latitde and logitude of the crystal. 
-ghaddafi and hussein tried, but not foudn. 
+Charlie was deployed to center for agriculture
+which became the center for the development of drugs for use in brainswashing and interrogation of the CIA. 
+Testing the funghi on citizens
+high dosage, so they are constantly on a horror trip and paranoid
+the images, burnt in 'american memory'
+not fallen, jumped but dropped
+suicide for menschenfleisch?
 psyop
+
+scribble:remote viewing
+ irl flame: joseph mcmoneagle, joined njured in helicopter accedent, spennt time in intelligence, extroarodinge leveels of perception, unmarked enveleope, what was inside, prototype tank, he was inside in some weapon systeym, described it 
+
+maybe he has access to Cs machine, the object. 
+
+
+latitde and logitude of the crystal. 
 subliminal stimuli
 DIA(Defense Intelligence Agency) to CIA<was that in red plenty
 remote sensing, psychic soldier with ability to know everything bout enemies unit
