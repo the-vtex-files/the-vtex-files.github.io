@@ -1,4 +1,4 @@
-I, John Dyson, born in Flint, Michigan, to a couple of machinists, experienced kinds of epiphanies already as a child: for instance, on a school trip in August 2001 I've noticed an armored vehicle operating autonomously besides the Wolverine to Ann Arbor Train station. My second sight carries me in a state between active and passive. I perceive signals from the outside, an incomprehensible and chaotic kingdom, which can not be interpreted with words but somehow manifest in my body, mind and soul and as a consequence, turn out to be prophetic. I would have never dared to share my weird experiences with somebody else, as I wasn't keen to end up as a psychopatho-logical case and put on medication with crippling effects. My parents and other people around me were superstitous folk indeed, evangelical protestants, who'd block out any signs of horror as if it didn't belong to nature and solely existed as an alien evil force.<br>
+I, John Dyson, born in Flint, Michigan, to a couple of machinists, experienced kinds of epiphanies already as a child: for instance, on a school trip in August 2001 I've noticed an armored vehicle operating autonomously besides the Wolverine to Ann Arbor Train station. My second sight carries me in a state between active and passive. I perceive signals from the outside, an incomprehensible and chaotic kingdom, which can not be interpreted with words but somehow manifest in my body, mind and soul, and as a consequence turn out to be prophetic. I would have never dared to share my weird experiences with somebody else, as I wasn't keen to end up as a psychopatho-logical case and put on medication with crippling effects. My parents and other people around me were superstitous folk indeed, evangelical protestants, who'd block out any signs of horror as if it didn't belong to nature and solely existed as an alien evil force.<br>
 But wasn't I the one with clairvoyance, the one who saw clearly?
 
 Despite the looming threat of decay and madness, I still had a strong wish to step beyond the conventional limits of reality and secure a top spot in technology. Every day after school I would sit down at the family computer and train my skills with game-based learning. With a bit of determination it wasn't difficult to score high, anyway, my results drew attention and created a link with the Defense Intelligence Agency (DIA), who was headhunting psychic spies already from a young age. Only later I've learnt that the CIA was involved too. I was unaware that I was under observation ever since and deliberately driven into pursuing a career within the military. Looking for help with college tuition, I've enlisted at the tank force at the age of 18, dreaming to become part of the army's backbone and command a tank unit in combat, already imagining myself as a Sgt with specialist knowledge in high tech. 
@@ -8,38 +8,39 @@ After the blue phase of basic training at Fort Benning I was called to see my su
 "That means I won't proceed to my chosen MOS, Sir?"<br>
 "Correct, we will send you for AIT and pre-mission briefing to Palo Alto, CA."
 
-Branson was commissioned to build a platoon of supersoldiers in the tradition of cunning warrior monks. The recruits had to undergo intensive training in Eastern mind-body practices and internalize countercultural principles, finally enabling them to confuse the enemy with a lot of tricks. 
-One of them was precision bombardment with symbols and sounds of peace. 
- Generally speaking, cunning warfare is all about the supremacy of the human system over technology. 
-Upon arrival at Palo Alto, our group, consisting of a handful of otherwise unemployable freaks, got a first taste of the concept by his welcome address
+Branson was commissioned to build a platoon of supersoldiers in the tradition of cunning warrior monks. The recruits had to undergo intensive training in Eastern mind-body practices and internalize countercultural principles, finally enabling them to confuse the enemy with a lot of tricks, such as precision bombardment with symbols and sounds of peace. Generally speaking, cunning warfare is all about the supremacy of the human system over technology. Upon arrival at Palo Alto, our group, consisting of a handful of otherwise unemployable freaks, got a foretaste of the concept by his welcome address, a pathetic speech, which resounds in my ears as if it was yesterday.<br>
 "Soldiers of The First Earth Battalion will defy all logic and statistical probabliltiy and define the requirements of the U.S. Army for future conflict. 
-You will be trained to dare thinking the unthinkable, achieve the unachievableand. Programmed deficiencey will be reprogrammed, how fast depends solely on you. Put simply, you will be all that you can be."
-So far so good. 
-
-General Bernard "Bernie" Malmesbury II was not your typical general, he looked more like a benevolent grandpa with a frenzy for esoterism. 
-His doctrine a bit distorted, just like Branson he wasn't accepting the limits culture imposed on us, like solid matter shouldn't be an obstacle, but walking through walls?
+You will be trained to dare thinking the unthinkable and achieve the unachievableand. Programmed deficiency will be reprogrammed, how fast depends solely on you. Put simply, you will be all that you can be."<br>
+So far so good.
  
-and subsequently transferred to another think-tank at Palo Alto, California, called Science Applications International Corporation
+My first close encounter with Charlie was at the goatlab. We were tested with Zener cards in groups of two and fooled around, joking about the absurdity of competing for the title of the #1 third eye spy. I could immediately feel a deep connection between us and knew she did too.
 
-
-I first met Charlie at the goatlab, where we were tested with zener cards 
-in groups of two to find out about the strengths and specialities 
-of the future psi warriors. 
-pre- and retrocognition, communication with the dead, psychometry
-telekinesis, transmission of information
-experimental
-the communication via telepathy was trained 
-we were competing in whos the #1 third eye spy. 
-remote sensing
-she was like acid inside me. 
-'telesthesia'
- remote viewing describes “seeing remote or hidden objects clairvoyantly with the inner eye, or in alleged out-of-body travel.” Said to be “one of the oldest and most common forms of psi,” it is also “one of the most difficult to explain” (Guiley 1991).
-
-no limits travel wiht the mind. 
-
-All sounded well, but then we got divided
-and then you go underground.
+And we demonstrated it as the success rate of guessing the symbols transmitted between our minds was between 90% and 100%.
+Tested individually we were both just average. 
+Happy times ended, 
+the end of informal carefree experiments
+and worse, the physical seperation from Charlie.
+orders from the very top, 
+Subsequently I was deployed to a think-tank called International Science Applications Corporation (ISAC).
+time for me to go underground.
 And there's my dreams got buried.
+
+To aid my telesthesia they let me listen to the signals captured from the underground, and I should describe what I sense.
+The noise was unbearable, rythmic demonic the breaking of icecrystals
+It was insanely sublime machine, an otherworldly structure of partly made of gold and copper  and definitely not something accomplished by humans. 
+ All of a sudden I was inside, 
+
+ and I could perceive some of the components in detail. 
+The noise turned into 
+The demon knows the precise location and momentum of every atom in the entire universe.
+I couldn't go on any longer, and trashed the headphones off my head. I saw the sketch of what I've drawn now in front of me. I felt sick. 
+"Thanks Dyson, we now have what we are searching for, you can go for now."
+
+
+subliminal stimuli
+he hypnotizer, magnetism
+future psi warrior
+
 Charlie was deployed to center for agriculture
 which became the center for the development of drugs for use in brainswashing and interrogation of the CIA. 
 Testing the funghi on citizens
@@ -48,19 +49,7 @@ the images, burnt in 'american memory'
 not fallen, jumped but dropped
 suicide for menschenfleisch?
 psyop
-
-scribble:remote viewing
- irl flame: joseph mcmoneagle, joined njured in helicopter accedent, spennt time in intelligence, extroarodinge leveels of perception, unmarked enveleope, what was inside, prototype tank, he was inside in some weapon systeym, described it 
-
-maybe he has access to Cs machine, the object. 
-
-
-latitde and logitude of the crystal. 
-subliminal stimuli
-DIA(Defense Intelligence Agency) to CIA<was that in red plenty
-remote sensing, psychic soldier with ability to know everything bout enemies unit
-the hypnotizer, magnetism
-ts laplaces demon
+psychic soldier 
 my oath, behavior of army is outrageous and represents a blatant breach of national and international rights, geneva
 security clearance >john is danger
 John entered to steal her leftover body. 
@@ -69,10 +58,16 @@ shes dead, did john already steal the body?
 maybe them unburied it
 and he threatens to switch off charlie for good,
 while she is already in search for him. 
+pre- and retrocognition, communication with the dead, psychometry
+ or telekinesis. 
 
 athologists had to rip the skin off his limbs and tear his body apart, macerate it and send it in chunks to various labs for analysis. In the search for truth, Eric had to tear his father's body limb from limb.
 they need to get rid of him, he could see the full truth already in 2001
 ''just one of the risks running with scientific experimentation.''
+
+maybe he has access to Cs machine, the object. 
+latitde and logitude of the crystal. 
+
 
 PRESENT:frustrated with his job, 
 just some job title, as lt.gen. now he would prefer to be in combat but
