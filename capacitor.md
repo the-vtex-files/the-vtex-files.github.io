@@ -1,12 +1,13 @@
-A condenser capsule still functions in high temperatures.                  the woman has no clue how long she spent there
+A condenser capsule still functions in high temperatures.                  The woman has no clue how long she spent there,
 stripped from past and future, dwelling in the ever-present 
-and dreams she is still alive and doing honest farmwork
-only left with the stench of living death. 
-some time ago the man stole her bones and put them inside the capacitor. 
-he had to rip of the flesh of her limbs and macerate, tear her body into chunks
-to keep a small amount of energy
-resistors charge and decharge her casket 
- 
+and dreams of doing honest farmwork, 
+left with the stench of living death. 
+Some time ago the man 
+had to rip off the skin of her limbs and tear her body into chunks.
+He stole her bones and put them inside the capacitor
+to keep a small amount of energy.
+now, resistors charge and decharge her casket 
+Is she alive *or* dead?
 
 
 
@@ -16,10 +17,10 @@ his blood now frozen from duty at the frontline of subsurface
 a fire would be great to get some warmth, he thinks 
 oscillating bones will send signals the ground to find her
 
-the demon with a ribcage of gold and claws of copper
+The demon with a ribcage of gold and claws of copper
+was a 
 told the emperor a gold-plated infectious intelligible lie 
 it was a trap to take over
 underneath, the superman lives on
 the unintelligible truth
 
-send it in chunks to various labs for analysis. 
