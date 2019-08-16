@@ -1,29 +1,25 @@
-A condenser capsule viable in boiling temperatures.
-the woman without a clue how long she has spent there
-forever alone in hell  
+A condenser capsule still functions in high temperatures.                  the woman has no clue how long she spent there
+stripped from past and future, dwelling in the ever-present 
 and dreams she is still alive and doing honest farmwork
-the warrior hero sets fire to the city she once risked her life to save.
-
-
-the man buried her bones long time ago
-t the frontline of subsurface
-'be all that you can be' 
-too many corpses in the street , 'lit at random'
-cool hbby, makng other life smiserable
+only left with the stench of living death. 
+some time ago the man stole her bones and put them inside the capacitor. 
+he had to rip of the flesh of her limbs and macerate, tear her body into chunks
+to keep a small amount of energy
+resistors charge and decharge her casket 
+ 
 
 
 
-the apparent sun is the true sun as seen by an observer on the moon.
-local true solar time (LTST).
-a compass is needed
+The apparent sun is the true sun as seen by an observer on the moon.
+a compass is is not needed, he thinks, some sticks will do, maybe her bones, to determine the cardinal points and true solar time. 
+his blood now frozen from duty at the frontline of subsurface
+a fire would be great to get some warmth, he thinks 
+oscillating bones will send signals the ground to find her
 
-in the blood is iron, 'lava kneaded by subterranean forces, seeking an outlet. 
-the capacitor keeper of a tiny amount of electric energy
-heat is energy
-what happens if a resistor comes into play?
+the demon with a ribcage of gold and claws of copper
+told the emperor a gold-plated infectious intelligible lie 
+it was a trap to take over
+underneath, the superman lives on
+the unintelligible truth
 
-Energy is one of the primary constituents of the universe.
-it is conserved throughout the physical universe
-never created (so this has no past), always dynamic
-
-
+send it in chunks to various labs for analysis. 
