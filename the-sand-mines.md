@@ -18,53 +18,22 @@ So far so good.
 My first close encounter with Charlie was at the goatlab, when we got tested on our range of ESP in groups of two. We fooled around, joking about the absurdity of competing for the title of the #1 third eye spy. I could immediately feel a deep connection between us and knew she did too. It was even scientifically proven as the success rate of guessing symbols, transmitted between our minds, was between 90% and 100%. An individual follow-up check with Zener cards indicated we were both just average. We belonged together.<br>
 Orders from the very top ended carefree times of informal experiments and worst of all, it meant the physical seperation from Charlie. Subsequently I was deployed to a think-tank called International Science Applications Corporation (ISAC) with the opportunity to show my prowess by sensing underground, and there, my dreams got buried.
 
-They requested me to jot down what I sense and thought it would be a good idea if I'd listen to the captured signals from subsoil to trigger my telesthesia. The noise was unbearable, an eerie high-pitched sound of breaking crystal accompanied by a gloomy stomping rythm, but it worked. At first I just could see a huge black box before a mysterious force pulled me inside, and after passing numerous layers of shielding an otherworldly structure appearded on my mind. It was made out of gold; tubes, coils of other precious metals and tentacles of silver, definitely not something which could be engineered by humans. I was so frigging cold, was it because of the creep or of the temperature going towards an absolute zero down there?
+They requested me to jot down what I sense and thought it would be a good idea if I'd listen to the captured signals from subsoil to trigger my telesthesia. The noise was unbearable, an eerie high-pitched sound of breaking crystal accompanied by a gloomy stomping rythm, but it worked. At first I just could see a huge black box before a mysterious force pulled me inside, and after passing numerous layers of shielding an otherworldly structure appearded on my mind. 
 
+It was made out of gold and other precious metals its components in detail sophisticated artifacts, tubes, coils and silver tentacles.
+the core a black square.
+definitely not something which could be engineered by humans. I was so frigging cold, was it because of the creep or of the temperature going towards an absolute zero down there?
+Then the rythm formed up into a sequence of words<br>
+"The demon knows the precise location and momentum of every atom in the entire universe."<br>
+Over and over again it was pounding in my head. I couldn't go on any longer and ripped the headphones off my head. I felt sick and started vomitting. I've just summoned the demon.<br>
+"Thanks Dyson, we now have what we were searching for, you can go for now."
 
-I could perceive some of the components in detail, elegant artifacts. 
-a flat square with imprinted 
-
-then the rythm formed into a sequence of words
-"The demon knows the precise location and momentum of every atom in the entire universe."
-over and over again the sentence hammering in my head
-I couldn't bear the situation any longer, this was satans deed,  and ripped the headphones off my head. 
-Opening my eyes, I saw the sketch of what I've drawn now in front of me. I felt sick and started vomitting. I've just summoned the demon.
-"Thanks Dyson, we now have what we are searching for, you can go for now."
-
-
-subliminal stimuli
-he hypnotizer, magnetism
-future psi warrior
-
-Charlie was deployed to center for agriculture
-which became the center for the development of drugs for use in brainswashing and interrogation of the CIA. 
-Testing the funghi on citizens
-high dosage, so they are constantly on a horror trip and paranoid
-the images, burnt in 'american memory'
-not fallen, jumped but dropped
-suicide for menschenfleisch?
-psyop
-psychic soldier 
-my oath, behavior of army is outrageous and represents a blatant breach of national and international rights, geneva
-security clearance >john is danger
-John entered to steal her leftover body. 
-"The truth shall make your free"inscribed at the entry hall of cia headquartes 
-shes dead, did john already steal the body?
-maybe them unburied it
-and he threatens to switch off charlie for good,
-while she is already in search for him. 
-pre- and retrocognition, communication with the dead, psychometry
- or telekinesis. 
-
-athologists had to rip the skin off his limbs and tear his body apart, macerate it and send it in chunks to various labs for analysis. In the search for truth, Eric had to tear his father's body limb from limb.
-they need to get rid of him, he could see the full truth already in 2001
-''just one of the risks running with scientific experimentation.''
-
-maybe he has access to Cs machine, the object. 
-latitde and logitude of the crystal. 
-
-
-PRESENT:frustrated with his job, 
+"The truth shall make your free" is inscribed at the entry hall of CIA headquartes. 
+Charlies death was ''just one of the risks running with scientific experimentation.''
+security clearance.
+my oath, 
+behavior of army is outrageous and represents a blatant breach of national and international rights, geneva
+ 
 just some job title, as lt.gen. now he would prefer to be in combat but
 most of the time, he does bureaucrazy, this is hell
 is doing some PR for the military coz of his good looks.
