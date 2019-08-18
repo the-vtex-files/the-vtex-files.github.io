@@ -2,5 +2,6 @@
 
 Disease-causing agents thrive in homogeneous environments, however, a steep decrease of noise in relation to progressive science & technology was realized by the Law of Economics. The goal of getting a sound picture reversed and what remained were discrete oscillations, newly composed by calculus.
 Another threat level is nuclear fission. Ancient Greek philosophers Leucippus and his pupil [Democritus](https://pages.mtu.edu/~pcharles/SCIHISTORY/Democritus.html) ( 460 – 370 BC) already viewed the atom as indivisible matter and when the mean tropical year was still observed from earth, mankind accomplished a rather actual split of the mean solar day at a time scale of 1/86 400.
+
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/virus.jpg)
 
