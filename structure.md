@@ -16,7 +16,7 @@ simultaneously everywhere and nowhere,<br>
 mass hallucination is<br>
 the compression of time to mine virtual space.<br>
 Meanwhile the plasmic inversion of space and time,<br>
-where sound travels faster than light<br>f
-buried truth in a- geological inner-time.
+where sound travels faster than light<br>
+buried truth in a- geological inner-time.<br>
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/structure.jpg)
 
