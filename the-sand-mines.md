@@ -24,16 +24,10 @@ The sentence was pounding in my head over and over again. I couldn't go on any l
 "Thanks Dyson, we have what we were looking for, you can go for now."
 
 The bright side of VteX is now the place where war and biz meets and became
-a permanent construction site.
-Complexes, which are built on moon dust, are in steady progression, 
-
-before one is even finished 
-another one is built on top of it. 
-Spice is cheap and the underground is mined and exploited well, the structure however was never found. 
+a permanent construction site. Complexes, which are built on moon dust, are in infinite progression, never to be finished, another one is built on top of another one. But spice is cheap and the underground is mined and exploited well, the structure however was never found. 
 
 The *Information Channel* on moon VteX streams reality beams of documentaries and interviews 24/7, today with an episode of the popular podcast *RE: woke*. The transformer is represented by Clark Carson, founder, chair of the think tank EquityNow, independent podcaster and Captain John Dyson from Huntsville, TX. A live recording as usual from CCs openoffice in the capital.
 
-![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/transfomer.gif)
 
 CC: John, the civilian population has been always held captive of their confined imagination and meat suit and robbed their most fundamental rights by the Cathedral. One might ask after your recent disastrous defeat, who is the enemy now and is there a new strategy?
 
@@ -45,4 +39,4 @@ CPT: I don’t give any political statements, but the military’s R&D team has 
 
 CC: Thanks John, our listeners will appreciate this. 
 
-
+![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/transfomer.gif)
