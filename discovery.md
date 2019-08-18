@@ -50,9 +50,7 @@ What lay hidden in the collage of The VteX Files?
 
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif)
 
-Divock could still stick around, harvest time was over a fortnight away, but his home is the wild hunt and his destiny to inseminate the grain and to deliver the storm and clouds. His return is unsure, according to the legend he is followed by legions of wolves who will roam the ruins of VteX.
-
-It will be rather unlikely that Charlie will be there to scythe the last corn stalk and bundle the last shock as she catched the plague to become the incarnation of conflicting nature a creative and destructive force of chaos.
+Divock could still stick around, harvest time was over a fortnight away, but his home is the wild hunt and his destiny to inseminate the grain and to deliver the storm and clouds. His return is unsure, according to the legend he is followed by legions of wolves who will roam the ruins of VteX. It will be rather unlikely that Charlie will be there to scythe the last corn stalk and bundle the last shock as she catched the plague by doing so. She became the incarnation of conflicting nature, the creative and destructive force of chaos.
 
 
 
