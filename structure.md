@@ -1,4 +1,4 @@
-Satellites in the sky, they form
+**i. structure** Satellites in the sky, they form
 the outer peripheral points of the central nervous system accurately positioned Artificial moons elevated from territory
 observe earthly life indifferently, receiving and transmitting signals within
 A structure built by those infected by the alien pathogen (Greek: πάθος pathos "suffering,
