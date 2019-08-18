@@ -26,6 +26,8 @@ The sentence was pounding in my head over and over again. I couldn't go on any l
 The bright side of VteX is now the place where war and biz meets and became
 a permanent construction site. Complexes, which are built on moon dust, are in infinite progression, never to be finished, another one is built on top of another one. But spice is cheap and the underground is mined and exploited well, the structure however was never found. 
 
+![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/transformer.gif)
+
 The *Information Channel* on moon VteX streams reality beams of documentaries and interviews 24/7, today with an episode of the popular podcast *RE: woke*. The transformer is represented by Clark Carson, founder, chair of the think tank EquityNow, independent podcaster and Captain John Dyson from Huntsville, TX. A live recording as usual from CCs openoffice in the capital.
 
 
@@ -39,4 +41,3 @@ CPT: I don’t give any political statements, but the military’s R&D team has 
 
 CC: Thanks John, our listeners will appreciate this. 
 
-![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/transformer.gif)
