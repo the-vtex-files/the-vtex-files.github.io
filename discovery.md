@@ -1,58 +1,56 @@
-Charlie is driving the single-tracked path to the Center of Agriculture (CA),
- surrounded by the vast fields of designer wheat and its germane funghi 
-rocking softly in the gentle wind.<br>
-Indeed, life is spoilt on the near side of the moon.<br>
-It is early in the day, the terminator has shifted and moon dust has settled. A long 334.5h work shift lies ahead for Charlie; 
-part of administrative staff, she is responsible for keeping the crops tidy and their picking before nightfall.
-The rich harvest is not tantamount with a poor stock market performance, 
-excessively strong winds guarantee a daily net profit, when it's switch-off time for the reaper and the crop eradication policy is left to nature. 
+I was driving along the single-tracked path to the Center of Agriculture (CA), surrounded by the vast fields of designer wheat and its germane funghi. It was early in the day, but the terminator has shifted and moon dust has settled, a long 334.5h work shift lied ahead for me. I was a proud member of staff, responsible for keeping the crops tidy and their picking before nightfall. 
+The rich harvest was not tantamount with a poor stock market performance, violent storms guaranteed a tremendous daily net profit, whenever it was switch-off time for the reaper and crop eradication policy was left to nature.<br> 
+Indeed, life was spoilt on the far side of the moon.
 
-The vehicle's dead angle monitoring is off, no need nor time for that on an exemplarily managed orb like VteX, but vexing rustling noise is impinging on her auditory system, sparse but all at once. 
-
+Ears rocked softly in the gentle wind and the vehicle was doing its rounds coherently. I didn't had to worry about missing dead angles as safety took priority on an exemplarily managed orb like VteX, where smart self-enmeshing sensor technology signaled if anything failed to function as usual. The information flow on crop growth progression was kick-ass, as a matter of fact every grain kernel was tracked by the far, wide and steady emission of electromagnetic waves and their backscatter to the receiver.<br>
+It was Wed 03 Jul 2020 02:27:45 PM when any acting force between magnetic body and its armature went missing and tank tracks stopped abruptly. Something alien prowled through the fields, territory that has been carefully scanned and mapped by me in real-time.
 ```
-[ch_hanson@localhost ~]$ echo wtf
+[divock@localhost ~]$ echo wtf
 wtf
 ```
-Charlie's existing potential cannot be utilized vision adjustment is difficult in prevalent lunar near vacuum conditions.
+"Where is this damn noise coming from?"<br>
+```
+[divock@localhost ~]$ echo wtf
+wtf
+```
+On the dark side of the moon laser light pulsing set the mode of operation for remote sensing, but this time I couldn't illuminate a target and lost my capability to packetize constituent reflection points into an economically meaningful simulation. Direction finding (DF) can prove difficult in prevalent lunar near vacuum conditions and I had to perform an alternate process common on the bright side. The armored plate securing my protectoscope slid smoothly downwards, revealing a slick Gundlach rotary periscope assembly. 
+At first I felt rather sceptical towards the different band of the alternate signal, but the method offered indeed observation of the potential threat, which turned out to be dark blurred spots in an otherwise bleak landscape, merging into a body with bizarre agility. I wished to marvel at this phenomenon for a bit longer as I've never witnessed anything like with event-based -dar.
+It was made of infinite boundless frames and escaped any logic but identification was urgent, so I've proceeded with the required law of void for vagueness and instantly recognized a wolf.
+(it just resembled a wolf, but that wasn't apparent to me back then)<br>
+Finally I was ready for some action.
 
-[ch_hanson@localhost ~]$ ping
+Reflections of captured radio beams fed my directed-energy weapon (DEW), triggering armor-piercing fin-stabilized discarding sabots (APFSDS) to penetrate the object with kinetic energy. My display indicated a high hit-rate, the wolf however, completely unbothered, was still coming for me with a determined grin on its face. My hands clenched in anger around the railgun and I kept aiming and firing without breathing space nor kill. "Keep calm Charlie", I've tried to reassure myself, "comply with system management standards." Fair enough - I just had the sole option of a standard rifle, constructed by our mighty corporation and usually more than efficacious to eliminate all foreign matter as instructed. The wolf stopped moving and stood now right in front of my muzzle.<br>
+"Who the hell are you?" I screamed ".. you should be lacerated flesh by now."
 
-Something must move in the fields, that doesn't make the situation easier
-Dark blurred spots in the otherwise bleak landscape- 
-the movement comes together as a body
-biodiversity?
-In the speed of light she recognizes a wolf, to be more precise it resembles a wolf, with humanlike features and agility.
-Following the conglomerate's decree, all foreign matter must be eliminated to avoid inconvenience.
+"Hi, I'm Divock", said the chimeric being calmly<br>
+"things got horribly wrong, they've cancelled the future and consequently space-time. you won't notice it atm but I got a msg for you - to know where you're at."<br> 
+A message, I thought, that is information with an exorbitant amount of uneconomic entropy.<br>
+"Sorry, no interest. Anyway, have a good day."<br>
+I've decided to pay no longer attention to this nonsense and tried to reboot the whole system.<br>
+"Face it, ur just a flat projection of ur former self. Although to me u look like a steel case with some wires in it, LOL<br>
+And you know what? You've only 'made it' here coz of your ambiguous name."<br>
+Absolutely convinced of hallucinating, I still yelled at him "bullshit, unlike you I'm made of flesh, bones and blood!"<br>
+Then he pulled an axe from the back of his trousers and split my skull apart.<br> 
+"See, I am REAL. A friend from the past, who just allowed for some sunshine flowing into u."
 
-aim_target.exe
-launch_lazer.exe
+It felt as if a plug was pulled from a sink and consciousness drained out of my mind. I could watch cerebral matter, bone splinters and body fluids spattering through the air, onto the golden shimmering cereal and his muscular body. Somehow still functioning, I must have lost it or died and entered a parallel universe, either way, there was no other choice than being game for it. Strange how impeccable the mind works after a sudden burst of violence. I didn't want to show any weakness, how would it have benefited the situation anyway? I was naked<br>
+"What message? was that the fucking message? who is the sender?"<br>
+"no, listen, the msg contains documents that are beyond any subjective interests. You created them, your past you. Your language was different then though, lots of noise you were talking LOL"<br>
+He told me that my memory had been erased without clarifying the circumstances and the longer I was talking to Divock the more my stable reality crumbled, but wasn't I yearning for that ever since being trapped in this nauseating undisturbed rural idyll? Now, trembling with fear for my life and totally freaked out by the imminent revelation, I asked for file transfer.
 
-The shield of her deadly weapon unbolts and the laser beam strikes its target. Elimination in a flash - but the wolf, untouched is walking up to her,  
-Convulsive adherence to command 
-but Charlie has only the option of the standard laser, constructed by the company and usually reliable to kill any form that deviates from the citizens of VteX. 
+"I will put the folder on ur harddrive. Are you sure you can READ its contents? the interpretation of noise requires plenty of skill. hooman skill. maybe u have regained some after our encounter"<br>
+What the hell was this? A jumble of fragments, lossless compressed cropped images, some of them plain noise, a 'README' with a list of commands ..<br> 
+"You encrypted some of the graphics as a precautionary measure, you saw it coming, realizing that the outcome of this state-run project will be catastrophic."<br> 
+There was also a plain text file named 'John', and after perusing it seemed as I've discussed classified material, about some kind of untraceable plague.<br>
+"that is from a conversation with John Dyson in 2019, you know John, he serves on the bright side atm."<br>
+John Dyson, that name rang a bell, but I couldn't tell when or where i've heard it before.<br>
+"That was timestamped last year and I don't remember a thing?"<br>
+"Don't worry, your memories are canned, we took care of that." were the last words of the spectre before it disappeared into thin air.<br>
+What lay hidden in the collage of The VteX Files? 
 
-"I don't understand .. who are you .. you should be annihilated and burnt to ashes."
+![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif)
 
-"Hi, I'm Divock", says the chimeric being "I got a msg for you." <br>
-Charlie recognizes his words, a message, that is information, which can only be interpreted with a sufficient amount of uneconomic noise.<br>
-"You're not a part of the system, you don't have the app installed, so you're not able to send any message to me. Still curious tho, tbh."<br> 
-"What format is it? I can only read files with common standard .eXTs"
+Divock could still stick around, harvest time was over a fortnight away, but his home is the wild hunt and his destiny to inseminate the grain and to deliver the storm and clouds. His return is unsure, according to the legend he is followed by legions of wolves who will roam the ruins of VteX. It will be rather unlikely that Charlie will be there to scythe the last corn stalk and bundle the last shock as she catched the plague by doing so. She became the incarnation of conflicting nature, the creative and destructive force of chaos.
 
-"Are you sure you can READ it?<br>
-I don't say that you wouldn't do a good job as an interpreter but hasn't VteX fully switched to compiling nowadays? 
-And the interpretation of noise requires plenty of skill. hooman skill.<br>
-However it's some plain text and greyscale imagery, lossless compression, no harmful data, basically. The usb is formatted as FAT32 architecture can be navigated by a system like yours. 
 
-This is a true statement.
-"Who is the sender?", usually all notifications, no exeption pass through the central server. 
 
-"It is you, your past you, your language was different then though, lots of noise you were talking."
-
-"I'm a glitch in time, virtual matter, just like you." 
-Charlie doesn't get it, she's clearly made out of flesh, bones and blood and this bloke is a hallucination, must be a virus she catched. 
-But why not get the file, going a bit crazy today,
-if there's something wrong with it, the system would reject it anyway. 
-
- "Here's the usb." What an ancient way to transfer files, she thinks, while the folder pops up immediately, containing a txt file, a .png and readme.md. It's not an application, she opens the file, but doesn't understand. "What does it say, I'm not able to read this."
-"That's are files you sent to John Dyson in 2019, you know John, he serves at the dark side at the moment." "Try the readme, it's mix of your past and present lingo." John Dyson, that name rings a bell, she has briefly communicated with him on the matter of the secret biological weapon, both not working on inside matters.
-![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/letter.gif) 
