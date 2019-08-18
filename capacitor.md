@@ -1,33 +1,25 @@
-A condenser capsule still functions in high temperatures.                  The woman has no clue how long she spent there,
-stripped from past and future, dwelling in the ever-present 
-and dreams of doing honest farmwork, 
-left with the stench of living death, a particle in one known state.
-Some time ago the man 
-had to rip off the skin of her limbs and tear her body into chunks.
-He stole her bones and put them inside the capacitor
-to keep a small amount of energy.
-Her casket charged and decharged by resistors.
+A condenser capsule can withstand high temperatures.                  
+The woman has no clue how long she spent there,
+and dreams of doing honest farmwork,
+surrounded by the stench of living death.
+Stripped from past and future, she dwells in the ever-present. 
+Some time ago the man ripped the skin of the woman's limbs and tore her body into chunks. He put her stolen bones inside the capacitor to keep a small amount of energy. Charged and decharged by resistors, her casket
 
-His blood is frozen from the duty at the frontline of subsurface.
-battling inner/outer warfare
-
+The man was asked to unearth the truth, but has the truth asked for it? 
+His blood frozen from doing duty at the frontline of subsurface, how come, even though the star at the center deposits enough power?
 The apparent sun is the true sun as seen by an observer on the moon.
-A compass is is not needed, he thinks, some sticks will do, maybe her bonescan tell of which direction the wind is blowing from. 
+A compass is is not needed, he thinks, a shadow clock will do, maybe one of her bones can tell of which direction the wind is blowing from. 
+A fire would be great to get some warmth, he thinks.
+Her bones are well dense and elastic, he thinks, and will oscillate and provoke a superposition of states.
+Who knows about the outcome? he thinks 
 
-a fire would be great to get some warmth, he thinks 
-oscillating bones will send waves through the ground and reach her body 
-and both waves meet for superposition of states.
+The demon with a ribcage of gold and claws of copper is Thanos
+With dogmatic and presumptious attitude, he is in search for the truth. 
 
-The demon with a ribcage of gold and claws of copper
-was a gold-plated virulent intelligible lie. 
-A booby trap exploded and germs widespread. 
-his presumptious speech, said he will solve the puzzle
- but the truth never asked to be found. 
-
-
+a a gold-plated virulent intelligible lie. 
+ whilst the unintelligible truth is lampooned.
+"And ye shall know the truth and the truth shall make you free." - John 8:32<br>
+is carved in stone in the lobby of the Original Headquarters Building.
 underneath, 
 the superman lives on
-the unintelligible truth
-is destined to unearth the truth, buried in eternity, and bring an end to the endless war.
-
-
+the carving
