@@ -39,4 +39,4 @@ CPT: I don’t give any political statements, but the military’s R&D team has 
 
 CC: Thanks John, our listeners will appreciate this. 
 
-![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/transfomer.gif)
+![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/transformer.gif)
