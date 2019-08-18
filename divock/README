@@ -1,0 +1,5 @@
+convert -size 300x300+15+2 stegano:my_rose01.png lmessage_recovered.gif
+
+convert my_rose02.png -decipher pass_phrase.txt message_restored.gif
+
+compare -metric PAE crop2.png my_rose.png.07_22_19-21.33.22 noise_distr.png
