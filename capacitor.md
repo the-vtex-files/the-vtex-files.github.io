@@ -12,7 +12,7 @@ His blood frozen from serving at the frontline of the latest technology
 whilst, in full view firestorms rage and bodies lit 
 Does the star at the center not deposit enough power?<br>
 The apparent sun is the true sun as seen by an observer on the moon.<br>
-A compass is is not needed, he thinks, a [shadow clock](https://www.armystudyguide.com/content/army_board_study_guide_topics/land_navigation_map_reading/field-expedient-methods-of-determining-direction.shtml) will do, maybe one of her bones can tell of which direction the wind is blowing from?
+A compass is is not needed, he thinks, a [shadow clock](https://www.armystudyguide.com/content/army_board_study_guide_topics/land_navigation_map_reading/field-expedient-methods-of-determining-direction.shtml) will do, maybe one of her bones can tell of which direction the wind is blowing from?gnomon
 A fire would be great to get some warmth, he thinks.
 Her bones are well dense and elastic, he thinks, and their oscillation will provoke a superposition of states. Fallout is the worst that can happen, he thinks, and builds the multivibrator. 
 

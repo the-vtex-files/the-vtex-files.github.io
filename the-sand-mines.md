@@ -23,7 +23,8 @@ They requested me to jot down what I sense and thought it would be a good idea i
 The sentence was pounding in my head over and over again. I couldn't go on any longer and ripped the headphones off my head. I felt sick and started vomitting. I've just summoned the demon.<br>
 "Thanks Dyson, we have what we were looking for, you can go for now."
 
-The bright side of VteX became the place where war and biz meets and the city a permanent construction site. Its towering complexes, built on moon dust and stacked on top of each other are in infinite progression. 
+The bright side of VteX became the place where war and biz meets and the city a permanent construction site. Its towering complexes, built on moon dust and stacked on top of each other are in infinite progression. Charlie's death was 'just an accident following 
+experimentation. 
 
 ![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/transformer.gif)
 
