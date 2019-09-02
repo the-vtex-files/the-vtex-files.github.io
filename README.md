@@ -1,33 +1,31 @@
 # the-vtex-files.github.io
-**The VteX Files** is an experimental action RPG set on moon VteX, a rather hostile environment, where players face an abyss full of horrors. In the process, this tale of out-of-control capitalism, inter-dimensional surveillance and space-time distortion becomes strangely and poignantly relatable. 
-The difficulty to draw a clear line between fact and fiction, as descriptions and dialogue are blurred with real events, in many cases from the history of science & technology, aims at comprehending the world as a whole.
-Overall objective of the game is to challenge the ideology of linear progress by artistic intervention. Outcomes of the game are neither predetermined nor important, choose from infinite possibilites to discover new, hitherto unknown paths. It takes courage to diverge from beaten tracks but you are in the driving seat and decide what comes next. 
-Exploring the boundaries of what is possible seems already worthwhile but maximum results can be realized collectively.<br>
-Inspired by U/Acc and their work on mythpoiesis, success in the game relies on collaborative myth-making and the recognition of the political potency of myths, which are deeply rooted in society and function as a catalyst for real change and mobilization.
+**The VteX Files** is an experimental action RPG set on moon VteX, a rather hostile environment, where players face an abyss full of horrors. In the process, this tale of out-of-control capitalism, inter-dimensional surveillance and space-time distortion becomes strangely and poignantly relatable. The difficulty to draw a clear line between fact and fiction, as descriptions and dialogue are blurred with real events, aims at comprehending the world as a whole.
+Overall objective of the game is to challenge the ideology of linear progress by artistic intervention. Outcomes of the game are neither predetermined nor important, choose from infinite possibilites to discover new, hitherto unknown paths.
+ Exploring your own boundaries seems already worthwhile but maximum results can be realized collectively.<br>
+Inspired by U/Acc and their work on mythpoiesis, success in the game relies on collaborative myth-making and the realization of the political potency of myths, or hyperstitions, which are deeply rooted in society and function as a catalyst for mobilization.
+The futile task of engineering a future is handed over to the forces of chaos, 
 
-Myths, or hyperstitions stand in stark contrast to utopias, 
-institutionalized constructs, severed from cultural and economic realities, and can only provide an improved version of the present.
+The VteX Files is organized via git, which allows for a free and decentralized peer-to-peer exchange of ideas. 
+The source of the game and its entiry history are basically tamper-proof, 
+as can be cloned on participants local drives.
+**Rules** (beta) are derived from blockchain technology
 
-the futile task of engineering a future is handed over to the forces of chaos,
++ every commit means almost immediate change
+pushing forward the future in form of a chronological chain 
 
-In the game everyone is given a voice and access to add or modify, Having a voice however implies constant work, the building of knowledge, learning to resolve conflicts and sharpening intuition. Throughout the game you are challenged to do so and encouraged to experiment with language and technology.
++ once pushed to the master branch, changes are permantly added. They are immutable and have to be carried forward to the next merge.
 
-
-The VteX Files is organized via git, which allows for a free and decentralized peer-to-peer exchange of ideas and rules are adopted from blockchain technology.
-The game and its entiry history is basically tamper-proof, as can be cloned on each participants local drive.
-
-**Rules**
-+ every push means change through individual and joint action
-+ once on the master branch, changes are permantly added and immutable and have to be carried forward to the next merge
-+ once a pull request is opened, the majority decides on merging
-+ people may fork from the master branch and start their own game, the longest chain wins + timestamped and hashed by commits
-+ it is roleplay, but be kind irl
++ people may fork from the master branch and either stay in their own game or open a pull request
++  after all it is roleplay, but be noble irl
 
 **Open Call**<br>
-Slip into the roles of existing characters or invent new ones, go into combat or appropriate technocapitalism, how to approach complexities on VteX is up to you. Your sanity will be put to the test, formal reasoning and self-centeredness whill be fatal, a combination of intellect and senses and collaboration is essential to survive. 
+Slip into the roles of existing characters or invent new ones, go into combat with mythical creatures or appropriate technocapitalism, how to approach complexities on VteX is up to you. 
+It takes courage to be in the driving seat and your sanity will be put to the test, 
+collaboration is essential for survival. 
+ 
 
- where mythical creatures are engaged in civil war.
-, every skill you posess will be of surprising use when navigating around VteX, 
+You will be part to add or modify, however implies constant work, the building of knowledge, learning to resolve conflicts and sharpening intuition. Throughout the game you are challenged to do so and encouraged to experiment with language and technology. Every skill you posess will be of surprising use when navigating around VteX, 
+
 We accept texts of any form, writing, A/V work, image, documentation, performance, etc. Please consider others when choosing a file format.<br>
 Turn your desire for system collapse into production and send your proposal (200 words max.) and a short bio to our project maintainer ca_jaeger@protonmail.com. 
 
