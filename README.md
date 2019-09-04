@@ -15,7 +15,7 @@ Inspired by U/Acc and their work on mythpoiesis, success in the game relies on t
 **Open Call**<br>
 DEADLINE 31 /10 /2019 23:59 CET<br>
 Put your skills and sanity to the test by handing over the futile task of engineering a future to the forces of chaos! Slip into the roles of existing characters or invent new ones, go into combat with mythical creatures or appropriate technocapitalism, how to approach complexities on VteX is up to you.<br>
-You are encouraged to experiment with language and technology. Every skill you posess will be of surprising use when navigating around VteX, whether it is solving conflicts, intuition, or slaying robots, and throughout the game you will be challenged to build upon existing knowledge.<br>
+You are encouraged to experiment with language and technology. Every skill you posess will be of surprising use when navigating around VteX, whether it is conflict solving, intuition, or robot slaying, and throughout the game you will be challenged to build upon existing knowledge.<br>
 We accept texts of any form, writing, A/V work, image, documentation, performance, etc. Please consider others when choosing a file format.<br>
 Turn your desire for system collapse into production and send your proposal (200 words max.) and a short bio to our project admin ca_jaeger@protonmail.com. 
 
@@ -29,4 +29,3 @@ Nietzsche, F. (2019). Jenseits von Gut und Böse: Zur Genealogie der Moral. Sofi
 Popa, A. (2019). [The Second Body and the Multiple Outside](https://ossz2vasz4.wordpress.com/2019/03/04/alina-popa-the-second-body-and-the-multiple-outside/).<br>
 Shapin, S. and Schaffer, S. (2011). Leviathan and the Air-Pump: Hobbes, Boyle, and the Experimental Life. New Jersey: Princeton University Press.<br>
 Suber, P. (1990). [Appendix 3 - Nomic: A Game of Self-Amendment](http://legacy.earlham.edu/~peters/writing/nomic.htm).
-
