@@ -26,6 +26,6 @@ a superposition of states.
 
 the truth unintelligibel for the man.
 
-![]((https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/psychedelic_epiphany-thumb.jpg)
+![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/psychedelic_epiphany-thumb.jpg)
 
 
