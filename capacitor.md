@@ -3,7 +3,7 @@ The woman has no clue how long she spent there
 and dreams of doing honest farmwork,<br>
 surrounded by the stench of living death.<br>
 Stripped from past and future, she dwells in the ever-present. 
-Some time ago the man ripped off the skin of the woman's limbs and tore her body into chunks. He put her stolen bones inside the capacitor to keep [a small amount of energy](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/capsule.mp4). 
+Some time ago the man ripped off the skin of the woman's limbs and tore her body into chunks. He put her stolen bones inside the capacitor to keep [a small amount of energy](https://raw.githubusercontent.com/the-vtex-files/the-vtex-files.github.io/master/capsule.mp4). 
 
 Charged and decharged by the value of resistance, what was it precisely?<br>
 "And ye shall know the truth and the truth shall make you free." - John 8:32<br>
