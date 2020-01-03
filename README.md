@@ -12,7 +12,6 @@ throughout the game you will be challenged to build upon existing knowledge.
 Hand the futile task of engineering a future over to the forces of desire, clone and get your licence to speed! Starting point and outcomes of the game are neither predetermined nor important, choose from infinite possibilites to discover new, hitherto unknown paths. 
 The game doesn't directly pursue commercial interests, but wants to promote the free flow of information. 
 [Get in touch](mailto:ca_jaeger@protonmail.com) for any questions you might have, feedback and tips are greatly appreciated.
-<<<<<<< HEAD
 >>>>>>> develop
 =======
 >>>>>>>develop
