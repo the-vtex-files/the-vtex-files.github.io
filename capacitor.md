@@ -19,6 +19,6 @@ A fire would be great to get some warmth, black fallout is the worst that can ha
 Her bones are well dense and elastic, they will oscillate and provoke a superposition of states, he thinks<br>
 Waves of Longing to demonstrate the unintelligble truth
 
-![](https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/images/psychedelic_epiphany-thumb.jpg)
+![](/images/psychedelic_epiphany-thumb.jpg)
 
 
