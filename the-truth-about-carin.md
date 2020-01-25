@@ -9,3 +9,5 @@ Her vile intentions and greed for money left us her puppets, and we don't even k
 We have <a href="https://github.com/the-vtex-files/the-vtex-files.github.io/blob/master/mozilla.pdf">proof</a> that she received a lot of money, to write a story that fits the gov and the corp.
 The wolf, or the wolves?, we don't know, seems to be on our side, but then, do they come from our imagination, perhaps not. It looks grim at the moment, but the wolf is our only hope.<br> 
 <a href="https://www.instagram.com/p/B6Nxw0xDvLV/">Didahdah-didididit-didah-dah didididit-didah-dah-didididit dahdahdit-didit-dahdidit didahdah-dididit-didit-dididah-dahdahdit-dididit-dah. Dididit-dahdidah</a>
+
+![](/images/didididididididitdah-thumb.jpg)
