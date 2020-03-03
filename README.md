@@ -9,19 +9,9 @@ Every generic capability you possess will come in handy when roaming the bruised
 Writing  with your gut, making tools for communication or navigation, solving cryptographic puzzles --
 throughout the game you will be challenged to build upon existing knowledge. Every slight modification provokes a surprising change of game, whether it be the realization of new ideas or playing across cultures, squads, lifestyles and disciplines. Its dynamics adapt to those of life, which is neither static nor deterministic, but a constant work-in-progress, where starting point or outcome are random.
 
-<<<<<<< HEAD
 Hand the futile task of engineering a future over to the forces of desire! Clone and get your licence to speed!
 The game does not directly pursue commercial interests but wants to promote the free flow of information.
 [Get in touch](mailto:ca_jaeger@protonmail.com) for any questions you might have, feedback is greatly appreciated. 
-||||||| merged common ancestors
-Hand the futile task of engineering a future over to the forces of desire, clone and get your licence to speed!  
-The game doesn't directly pursue commercial interests, but wants to promote discussion and the free flow of information. 
-[Get in touch](mailto:ca_jaeger@protonmail.com) for any questions you might have, feedback is greatly appreciated.
-=======
-Hand the futile task of engineering a future over to the forces of desire, clone and get your licence to speed!  
-The game does not directly pursue commercial interests, but wants to promote discussion and the free flow of information.\
-[Get in touch](mailto:ca_jaeger@protonmail.com) for any questions you might have, feedback is greatly appreciated.
->>>>>>> develop
 
 ![](images/the-vtex-files01.jpg)
 >>>>>>>develop
